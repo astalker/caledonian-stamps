@@ -1,12 +1,8 @@
 ## Caledonian Philatelic Society
 
-### Welcome
-
 Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
 
-**IMPORTANT NOTICE**
-
-**COVID-19 UPDATE**
+**IMPORTANT NOTICE - COVID-19 UPDATE**
 
 Due to the continuing Covid-19 Pandemic the committee have decided that all society meetings planned for the current calendar year will now be cancelled. The committee shall continue monitoring events as they happen with a view to reopening society meetings at the first appropriate opportunity when it is safe for all members and visitors.
 
