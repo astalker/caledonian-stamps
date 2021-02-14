@@ -11,7 +11,7 @@ Date  | Subject | Member
 26/11 | Design Errors on New Zealand Stamps | Dr David Stalker
 10/12 | Christmas Meeting | Bring your own wine and mince pies and a short (maximum 8 page) display
 
-### 2021
+### 2021
 
 Date  | Subject | Member
 ----- | ------- | ------
