@@ -1,7 +1,5 @@
 ## About Us
 
-{% include menu.md %}
-
 Philately (derived from Philos meaning loving and ateles meaning franked) is the collection of all aspects of postage stamps and postal history encompassing a large and varied range of collecting. There is far more to the hobby than simple “stamp collecting” that some may recall from their school days.
 
 One of the UK’s longest-running philatelic societies, the Caledonian Philatelic Society was founded on 14 February 1906, when a group of stamp collectors met on the premises of Douglas, Cook & Co Stamp Dealers on Sauchiehall Street, Glasgow, and made the decision to form a philatelic society. The group was initially known as the Junior Philatelic Society of Scotland, changing to its current name in 1930.
