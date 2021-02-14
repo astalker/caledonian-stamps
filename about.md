@@ -1,4 +1,4 @@
-# About Us
+## About Us
 
 {% include menu.md %}
 

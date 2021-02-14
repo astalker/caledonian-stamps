@@ -1,4 +1,4 @@
-# Caledonian Philatelic Society
+## Caledonian Philatelic Society
 
 {% include menu.md %}
 
