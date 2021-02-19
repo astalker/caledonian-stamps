@@ -59,11 +59,11 @@ See https://www.scottishphilately.co.uk/rules.php (National Exhibition - Advice 
 This is awarded to the best competition entry of no less than 16 sheets by a member who has not previously won an award in Society competitions (including this cup). All relevant entries to all competitions will automatically be considered for this award. An award will only be made if there is an entry of an acceptable standard.
 
 **Rules for the President's Cup Competition**.
-General rules 1, 2 and 3 above apply.
 
-Judging will be carried out by members present on Competition Night.
-The award may be withheld if none of the entries are of sufficient merit.
-An entry which has received this award shall not again be eligible for this competition, but may be entered in subsequent years for one of the other Society Trophies.
+General rules 1, 2 and 3 above apply.
+4. Judging will be carried out by members present on Competition Night.
+5. The award may be withheld if none of the entries are of sufficient merit.
+6. An entry which has received this award shall not again be eligible for this competition, but may be entered in subsequent years for one of the other Society Trophies.
 
 **The Caledonian Rose Bowl**
 
