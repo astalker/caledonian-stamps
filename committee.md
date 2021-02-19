@@ -1,6 +1,6 @@
 ## Committee
 
-Hon. President: Mr W. Colley, FRPSL
+**Hon. President**: Mr W. Colley, FRPSL
 
 Hon. Vice Presidents
 
