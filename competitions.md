@@ -7,45 +7,45 @@ Many of the club's more eminent philatelists have gone on to win prizes at Natio
 **Competition Rules**.
 The following trophies are awarded to the winners of the Society's annual competitions. The entries for these competitions are judged by two ABPS accredited judges, who are not members of the Society. Entries are judged before the Competition night and feedback is provided to the entrants on that night. The criteria for each completion class is based on those of the Association of Scottish Philatelic Societies (ASPS) and more detail and extracts from ASPS rules and guidance on the requirements is shown under each trophy description.
 
-1. **Frank Brown Rose Bowl**
+**1. Frank Brown Rose Bowl**
 General or specialised collections of stamps issued before 1st January 1940.
 
-2. **Fairbairn Salver**
+**2. Fairbairn Salver**
 General or specialised collections of stamps issued on or after 1st January 1940.
 
 For both of these trophies material can be specialized or non-specialized and can include studies, proofs and essays. It can also include fiscal, revenue and other non-postal stamps, (experimental, locals, telegtaphs etc.). For the purposes of this competition these latter items are defined as material not recognised for the international transmission of mail but accepted as being used locally or generally for the transmission of messages and packages, e.g. local, railway or telegraph or for the collection of non-postal revenue.
 
-3. **Jean M. Campbell Trophy**
+**3. Jean M. Campbell Trophy**
 Postal History including pre-adhesives, used stamps and postal history, postal markings, cancellations etc.. Mint stamps and unused postal stationery are not normally included.
 
 Entries in this class can include items on rates and routes and studies of markings and marcophily (the specialised study and collection of postmarks, cancellations and postal markings applied by hand or machine).
 
-4. **Merrylees Trophy**
+**4. Merrylees Trophy**
 Study of a subject or theme as depicted on stamps and other philatelic material.
 
-5. **Bill Colley Trophy**
+**5. Bill Colley Trophy**
 Study of philately prepared for and conveyed by airmail, whether official or unofficial. Exhibits which consist solely of airmail stamps will also be judged in this class.
 
-6. **Julia MacLeod Trophy**
+**6. Julia MacLeod Trophy**
 Picture postcards depicting a subject or theme.
 
 An exhibit can have a geographical (topographical) treatment, including for example illustrations from a place or an area. It can also be developed thematically. An event may be shown as a form of reportage, or the exhibit may have the photographer, the artist, or the printer as the topic. Original thinking and creativity may also lead to different treatments of an exhibit.
 
 The size, shape and material of the Picture Postcards may vary. The emphasis is on the picture, and not on the use or philatelic peculiarities (if present). Picture Postcards may be unused or used (sent through a mail system). Unused Picture Postcards should have printed address lines, stamp box, or other such markings, showing that the item was intended to be sent without cover.
 
-7. **Cinderella Trophy**
+**7. Cinderella Trophy**
 This may include local stamps, telegraph stamps, railway stamps, revenues/fiscals, forgeries, bogus and phantom issues. Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels etc.
 
 However, things such as trade, cigarette and telephone cards (unless the image of a stamp is incorporated in the design), matchbox or cheese labels, aerial propaganda leaflets, and other forms of ephemera like emergency money are not considered as Cinderella items for this purpose.
 
 **Rules applicable to the above competitions**.
 
-Only Society members may enter.
-No less than 8 and no more than 16 sheets are required.
-No more than one entry per member per competition is permissible.
-Two ABPS accredited judges, who are not members of the Society, shall be appointed by the Committee. Entries will be judged before the Competition night but the judges will provide feedback is provided to the entrants on that night.
-The judges shall have the power to allocate marks to each entry as they see fir and their decision shall be final. Awards may be withheld if the best entry fails to meet an acceptable standard.
-No entry that has previously received an award is eligible for competition.
+1. Only Society members may enter.
+2. No less than 8 and no more than 16 sheets are required.
+3. No more than one entry per member per competition is permissible.
+4. Two ABPS accredited judges, who are not members of the Society, shall be appointed by the Committee. Entries will be judged before the Competition night but the judges will provide feedback is provided to the entrants on that night.
+5. The judges shall have the power to allocate marks to each entry as they see fir and their decision shall be final. Awards may be withheld if the best entry fails to meet an acceptable standard.
+6. No entry that has previously received an award is eligible for competition.
 **Submission of entries**.
 There are no entry forms. All that is required is the submission of entries to the Secretary on or before the last Society meeting in January, unless otherwise indicated at Society meetings.
 
