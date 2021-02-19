@@ -46,7 +46,9 @@ However, things such as trade, cigarette and telephone cards (unless the image o
 4. Two ABPS accredited judges, who are not members of the Society, shall be appointed by the Committee. Entries will be judged before the Competition night but the judges will provide feedback is provided to the entrants on that night.
 5. The judges shall have the power to allocate marks to each entry as they see fir and their decision shall be final. Awards may be withheld if the best entry fails to meet an acceptable standard.
 6. No entry that has previously received an award is eligible for competition.
+
 **Submission of entries**.
+
 There are no entry forms. All that is required is the submission of entries to the Secretary on or before the last Society meeting in January, unless otherwise indicated at Society meetings.
 
 Members are encouraged to look at the rules and advice provided by ASPS with a view to entering competitions at that level.
@@ -62,5 +64,7 @@ General rules 1, 2 and 3 above apply.
 Judging will be carried out by members present on Competition Night.
 The award may be withheld if none of the entries are of sufficient merit.
 An entry which has received this award shall not again be eligible for this competition, but may be entered in subsequent years for one of the other Society Trophies.
+
 **The Caledonian Rose Bowl**
+
 The Caledonian Rose Bowl is awarded each year for the best display given to the Society by a Society Member. Judging of displays will be made by the immediate past President and two other member of the Society. Eligibility for this award can be either a full display (2 rounds) or a half display (1 round).
