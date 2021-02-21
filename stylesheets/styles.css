@@ -178,10 +178,8 @@ body {
   }
 
   footer {
-    width:270px;
-    float:left;
-    bottom:50px;
-    -webkit-font-smoothing:subpixel-antialiased;
+    clear:both;
+    text-align:center;
   }
 
   @media print, screen and (max-width: 960px) {

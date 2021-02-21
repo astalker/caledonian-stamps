@@ -1,4 +1,5 @@
-**Postcard Collecting**
+## Postcard Collecting
+
 Collecting postcards is in many ways complimentary to stamp collecting and many collectors collect both and they can enhance a stamp collection. Postcard collecting caters for all interests and can encompass a wide variety of interests - football, royalty, railways, aircraft local history and so on. Postal history, events of social importance and snap shots of the past are all captured on postcards.
 
 The picture, stamp, postmark, message and address are part of the life of two people - the sender and the recipient - in the past. Few collectors are lucky enough to find a postcard written by a famous person, but many correspondents referred to current events in their messages.

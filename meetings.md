@@ -1,5 +1,7 @@
 ## Meetings
 
+{% include meetings-menu.html %}
+
 ### 2020
 
 Date  | Subject | Member
