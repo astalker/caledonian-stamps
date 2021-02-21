@@ -1,7 +1,8 @@
-## Previous Meetings
+## Meetings
 
 {% include meetings-menu.html %}
 
+### Previous Meetings
 ### 2019
 
 Date  | Subject | Member

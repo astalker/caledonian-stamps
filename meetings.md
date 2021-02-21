@@ -2,6 +2,7 @@
 
 {% include meetings-menu.html %}
 
+### Current Syllabus
 ### 2020
 
 Date  | Subject | Member
