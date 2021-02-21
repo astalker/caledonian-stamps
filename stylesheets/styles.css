@@ -2,12 +2,9 @@ body {
     background-color: #fff;
     padding:25px;
     font: 14px/1.5 -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, Oxygen, Ubuntu, Cantarell, "Fira Sans", "Droid Sans", "Helvetica Neue", Arial, sans-serif, "Apple Color Emoji", "Segoe UI Emoji", "Segoe UI Symbol";
-    color:#595959;
-    font-weight:400;
   }
 
   h1, h2, h3, h4, h5, h6 {
-    color:#222;
     margin:0 0 20px;
   }
 
@@ -25,7 +22,6 @@ body {
   }
 
   h3, h4, h5, h6 {
-    color:#494949;
     font-weight: 500;
   }
 
@@ -75,7 +71,7 @@ body {
   }
 
   table tr:nth-child(even) td {
-    background-color:ivory;
+    background-color:#f2f1f1;
   }
 
   th, td {
@@ -90,8 +86,8 @@ body {
   }
 
   th {
-    color:#444;
-    background-color: beige;
+    color:white;
+    background-color:#4c85c1;
   }
 
   img {
@@ -130,15 +126,10 @@ body {
 
   nav ul a {
     line-height:1;
-    color:#999;
     display:block;
     padding-left:15px;
     padding-top:12px;
     height:34px;
-  }
-
-  nav ul a:hover {
-    color:#999;
   }
 
   nav ul a:active {
