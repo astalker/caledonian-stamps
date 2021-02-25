@@ -37,7 +37,7 @@ body {
   }
 
   .wrapper {
-    width:860px;
+    width:980px;
     margin:0 auto;
   }
 
@@ -139,7 +139,7 @@ body {
   }
 
   section {
-    width:500px;
+    width:690px;
     float:right;
     padding-bottom:50px;
   }
@@ -177,7 +177,9 @@ body {
   }
 
   .submenu li {
-    float:left; margin-right: 5px;list-style: none;
+    float:left;
+    margin-right: 5px;
+    list-style: none;
   }
 
   .submenu li:before {
