@@ -1,3 +1,5 @@
 ## Events
 
-{% include events-menu.html %}
+### Kelvin Hall Open Days and Chinese New Year
+
+### Social Evening
