@@ -73,7 +73,7 @@ body {
 
   dt {
     color:#444;
-    font-weight:500;
+    font-weight:bold;
   }
 
   th {
@@ -125,17 +125,6 @@ body {
 
   nav ul a:active {
     background-color:#f0f0f0;
-  }
-
-  strong {
-    color:#222;
-    font-weight:500;
-  }
-
-  nav ul a strong {
-    font-size:14px;
-    display:block;
-    color:#222;
   }
 
   section {
