@@ -28,10 +28,10 @@ Feb 6 | Commerce in the Post | Ron Goodfellow
 Feb 13 | Competition Night |
 Feb 20 | The Monumental French - France Remembers | Russell Walker
 Feb 27 | Auction |
-March 5 | Visit by Dundee Philatelic Society |
-March 12 | Goats and butterflies | Graham Winters FRPSL
-March 19 | Indian Mutiny | Max Smith
-April 2 | AGM |
+Mar 5 | Visit by Dundee Philatelic Society |
+Mar 12 | Goats and butterflies | Graham Winters FRPSL
+Mar 19 | Indian Mutiny | Max Smith
+Apr 2 | AGM |
 
 ### 2018 - 2019
 
@@ -56,10 +56,10 @@ Feb 7 | Registered Mail of Scotland 1841 - 1940 | Dr Ian Evans
 Feb 14 | Competition Night |
 Feb 21 | Postal History of Canada including Transatlantic Mail | Graham Searle
 Feb 28 | Auction |
-March 7 | Netherlands in WWI and WWII Far East | Michael Cooke and Iain Dyce
-March 14 | Aspects of Ceylon | Graham Winters FRPSL
-March 21 | Aotearoa Unwrapped | Elizabeth Nairn
-April 4 | AGM |  
+Mar 7 | Netherlands in WWI and WWII Far East | Michael Cooke and Iain Dyce
+Mar 14 | Aspects of Ceylon | Graham Winters FRPSL
+Mar 21 | Aotearoa Unwrapped | Elizabeth Nairn
+Apr 4 | AGM |  
 
 ### 2017 - 2018
 
@@ -84,10 +84,10 @@ Feb 8 | Iraq | Gary Cheyne
 Feb 15 | Messages on the Post - a Victorian Phenomenon | Dr Stewart Gardiner FRPSL
 Feb 22 | "Glasgow belongs to Me" | Dr Ian Evans
 Mar 1 | Auction |
-March 8 | Early Aviation | Dr Bob Clark
-March 15 | Greenland  | George Henshilwood
-March 22 | Alcohol on Postcards and Harry Lauder | David and Marjorie Mekie
-April 5 | AGM |  
+Mar 8 | Early Aviation | Dr Bob Clark
+Mar 15 | Greenland  | George Henshilwood
+Mar 22 | Alcohol on Postcards and Harry Lauder | David and Marjorie Mekie
+Apr 5 | AGM |  
 
 ### 2016 - 2017
 
@@ -112,11 +112,11 @@ Feb 2 | Estonia  | Raymond Baldock
 Feb 9 | Double Franked Postal Stationery | Chad Neighbor
 Feb 16 | Competition Night |
 Feb 23 | Micronesia | Murray Touche
-March 2 | Falklands Islands | Geoffrey Barber
-March 9 | Auction |
-March 16 | Visit by Ayrshire Philatelic Society |
-March 23 | American War of Independence | Robert Catto 
-April 6 | AGM |
+Mar 2 | Falklands Islands | Geoffrey Barber
+Mar 9 | Auction |
+Mar 16 | Visit by Ayrshire Philatelic Society |
+Mar 23 | American War of Independence | Robert Catto 
+Apr 6 | AGM |
 
 ### 2015 - 2016
 
@@ -141,10 +141,10 @@ Feb 4 | Vistit by Lanarkshire Philatelic Society |
 Feb 11 | Competition Night |
 Feb 18 | Stained Glass | Joan Trew
 Feb 25 | The Scottish Soldier | Gary Cheyne
-March 3 | Auction |
-March 10 | An Encounter with Cinderella | Don Millington
-March 17 | Papua New Guinea | Jean Osborne
-April 7 | AGM |
+Mar 3 | Auction |
+Mar 10 | An Encounter with Cinderella | Don Millington
+Mar 17 | Papua New Guinea | Jean Osborne
+Apr 7 | AGM |
 
 ### 2014 - 2015
 
@@ -169,10 +169,10 @@ Feb 5 | European Pre-stamp Miscellany | Alan Wishart FRPSL
 Feb 12 | Competition Night |
 Feb 19 | Black Gold | Coiln Campbell
 Feb 26 | Philatelic Sidelines | Sponsored by Dr David A Cumming
-March 5 | Auction |
-March 12 | 70 Years a Member | Stuart R Mackenzie
-March 19 | British Censorship of Civilian Mails in WWI | Graham Mark
-April 9 | AGM |
+Mar 5 | Auction |
+Mar 12 | 70 Years a Member | Stuart R Mackenzie
+Mar 19 | British Censorship of Civilian Mails in WWI | Graham Mark
+Apr 9 | AGM |
 
 ### 2013 - 2014
 
@@ -197,10 +197,10 @@ Feb 6 | Scottish Architecture | Sandy Forbes FRPSL
 Feb 13 | Competition Night |
 Feb 20 | Visit from Paisley PS |
 Feb 27 | Concorde | Val Beeken
-March 6 | Auction |
-March 13 | Britannia - War and Peace | Michael Rennie
-March 20 | Early Scottish Letters with an Edinburgh Miscellany | Malcolm Fenning.
-April 3 | AGM |
+Mar 6 | Auction |
+Mar 13 | Britannia - War and Peace | Michael Rennie
+Mar 20 | Early Scottish Letters with an Edinburgh Miscellany | Malcolm Fenning.
+Apr 3 | AGM |
 
 ### 2012 - 2013
 
@@ -225,7 +225,7 @@ Feb 7 | A Shining Inheritance | Ellen Currie
 Feb 14 | Competition Night |
 Feb 21 | Another Bloody Railway (Hong Kong Mail vie the Trans Siberian Railway) | Peter Pugh
 Feb 28 | Everyday France | Dr David Wooley
-March 7 | Auction |
-March 14 | Visit from Largs and District Stamp Club |
-March 21 | Scottish Banking and the Lottery | John Baron
-April 11 | AGM |
+Mar 7 | Auction |
+Mar 14 | Visit from Largs and District Stamp Club |
+Mar 21 | Scottish Banking and the Lottery | John Baron
+Apr 11 | AGM |
