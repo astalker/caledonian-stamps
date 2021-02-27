@@ -157,6 +157,7 @@ body {
 
   .submenu {
     padding:0;
+    margin-bottom:10px;
   }
 
   .submenu:after {
@@ -173,6 +174,10 @@ body {
 
   .submenu li:before {
      content: " / ";
+  }
+
+  .submenu li:first-child:before {
+     content: " ";
   }
 
 
