@@ -10,7 +10,7 @@ Meetings are held in Room GH542 in the Graham Hills Building, Strathclyde Univer
 
 Our meeting room is quite large and we provide a microphone and speaker system to ensure that speakers can be heard. We recommend that speakers put up their sheets and then speak about them from the front of the room, if possible.
 
-#### MEETING TIMETABLE
+#### Meeting timetable
 
 (Approximate)
 
