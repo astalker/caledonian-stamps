@@ -90,7 +90,7 @@ body {
   }
 
   nav {
-    width:270px;
+    width:200px;
     float:left;
   }
 
@@ -100,7 +100,7 @@ body {
     background-color:aliceblue;
     border-radius:5px;
     border:1px solid #e0e0e0;
-    width:270px;
+    padding-bottom:10px;
   }
 
   nav li {
@@ -128,7 +128,7 @@ body {
   }
 
   section {
-    width:690px;
+    width:760px;
     float:right;
     padding-bottom:50px;
   }
