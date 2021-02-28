@@ -2,7 +2,7 @@
 
 {% include history-menu.html %}
 
-### Royal Philatelic Society of Great Britain Visit 2006
+### <div align="center">Royal Philatelic Society of Great Britain Visit 2006
 
 <div align="center">Caledonian Philatelic Society 
 
