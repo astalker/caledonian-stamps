@@ -4,6 +4,30 @@
 
 ### Royal Philatelic Society of Great Britain Visit 2006
 
+Caledonian Philatelic Society 
+
+visit to 
+
+The Royal Philatelic Society London
+
+ 30 November 2006
+ 
+The Society wishes to thank the following members who have contributed selections from their collections for this display.
+
+Raymond Baldock, Alan Blakeley, Colin Breddy, Bill Colley, Michael Cooke, 
+
+James Cunningham, Iain Dyce, Ian Evans, Stewart Gardiner, Bob Gray, Ian Hamilton,
+
+Graham Hoey, Jack Kilpatrick, Willie King, Sandy MacCalman, Paul McGowan,
+
+Dave Matthews, Chris Moffat, Margaret Morris, Jim Moir, Elizabeth Nairn, Bill Neithercut,
+
+Ken Norris, Gordon Shepherd, Ian Smith, Joan Trew, Alan Wishart, Russell Walker,
+
+Derek Wiltshire, Terry Woods, David Woolley.
+![image](https://user-images.githubusercontent.com/25725462/109426734-0bf5da80-79e7-11eb-8398-fd99766a0371.png)
+
+
 #### Fr. 1-3   The Caledonian Philatelic Society
 
 Some pages from the Caledonian Philatelic Society's archives illustrating its birth as the Junior Philatelic Society of Scotland and its early Philatelic activities.
