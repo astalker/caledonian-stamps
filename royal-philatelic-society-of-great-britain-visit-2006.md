@@ -8,7 +8,7 @@ The Society wishes to thank the following members who have contributed selection
 
 <p style="text-align: center;">Raymond Baldock, Alan Blakeley, Colin Breddy, Bill Colley, Michael Cooke, James Cunningham, Iain Dyce, Ian Evans, Stewart Gardiner, Bob Gray, Ian Hamilton, Graham Hoey, Jack Kilpatrick, Willie King, Sandy MacCalman, Paul McGowan, Dave Matthews, Chris Moffat, Margaret Morris, Jim Moir, Elizabeth Nairn, Bill Neithercut, Ken Norris, Gordon Shepherd, Ian Smith, Joan Trew, Alan Wishart, Russell Walker, Derek Wiltshire, Terry Woods, David Woolley.</p>
 
-![Catalogue of Display](images0002.JPG)
+![Catalogue of Display](images/0002.JPG)
 
 #### Fr. 1-3   The Caledonian Philatelic Society
 
