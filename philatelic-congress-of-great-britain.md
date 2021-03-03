@@ -4,7 +4,7 @@
 
 ### Philatelic Congress of Great Britain
 
-![Group Photo(images/2Derby_4.jpg)
+![Group Photo](images/2Derby_4.jpg)
 
  
 
