@@ -2,30 +2,33 @@
 
 {% include history-menu.html %}
 
-** <div align="center">Royal Philatelic Society of Great Britain Visit 2006**<div align="center">
+### Royal Philatelic Society of Great Britain Visit 2006
 
-<div align="center">Caledonian Philatelic Society<div align="center">
+<div style="text-align: center;">
+Caledonian Philatelic Society
 
-<div align="center">visit to<div align="center"> 
+visit to
 
-<div align="center">The Royal Philatelic Society London<div align="center">
+The Royal Philatelic Society London
 
- <div align="center">30 November 2006<div align="center">
- 
-<div align="center">The Society wishes to thank the following members who have contributed selections from their collections for this display.<div align="center">
+ 30 November 2006
 
-<div align="center">Raymond Baldock, Alan Blakeley, Colin Breddy, Bill Colley, Michael Cooke,<div align="center"> 
+The Society wishes to thank the following members who have contributed selections from their collections for this display.
 
-<div align="center">James Cunningham, Iain Dyce, Ian Evans, Stewart Gardiner, Bob Gray, Ian Hamilton,<div align="center">
+Raymond Baldock, Alan Blakeley, Colin Breddy, Bill Colley, Michael Cooke,
 
-<div align="center">Graham Hoey, Jack Kilpatrick, Willie King, Sandy MacCalman, Paul McGowan,<div align="center">
+James Cunningham, Iain Dyce, Ian Evans, Stewart Gardiner, Bob Gray, Ian Hamilton,
 
-<div align="center">Dave Matthews, Chris Moffat, Margaret Morris, Jim Moir, Elizabeth Nairn, Bill Neithercut,<div align="center">
+Graham Hoey, Jack Kilpatrick, Willie King, Sandy MacCalman, Paul McGowan,
 
-<div align="center">Ken Norris, Gordon Shepherd, Ian Smith, Joan Trew, Alan Wishart, Russell Walker,<div align="center">
+Dave Matthews, Chris Moffat, Margaret Morris, Jim Moir, Elizabeth Nairn, Bill Neithercut,
 
-<div align="center">Derek Wiltshire, Terry Woods, David Woolley.<div align="center">
- 
+Ken Norris, Gordon Shepherd, Ian Smith, Joan Trew, Alan Wishart, Russell Walker,
+
+Derek Wiltshire, Terry Woods, David Woolley.
+
+</div>
+
 ![image](https://user-images.githubusercontent.com/25725462/109426734-0bf5da80-79e7-11eb-8398-fd99766a0371.png)
 
 
