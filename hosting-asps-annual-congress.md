@@ -11,4 +11,4 @@ As is traditional many member exhibited samples of the wide collecting interests
 ![Insert 1](images/Insert 1_000276.jpg)
 **:Insert with sayings from King James Authorised Bible:**
 ![Insert 2](images/Insert 2_000277.jpg)
-**:Insert withh history of The House of Stewart/Stuart:**
+**:Insert with history of The House of Stewart/Stuart:**
