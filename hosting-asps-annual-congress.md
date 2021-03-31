@@ -8,4 +8,4 @@ As is traditional many member exhibited samples of the wide collecting interests
 
 ![Congress cover](images/Congress Cover.jpg)
 ![Insert 1](images/Insert 1.jpg)
-![Insert 2](images/Insert 1.j2g)
+![Insert 2](images/Insert 1.jpg)
