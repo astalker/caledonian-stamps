@@ -11,9 +11,8 @@ In 2020 to help promote and encourage interest in stamp collecting, the Caledoni
 Four booklets were produced and were distributed by members to Philatelic Societies in the Glasgow area, libraries, museums and stamp shops. The objective was to foster interest in stamp collecting and to encourage joining a stamp club in the Glasgow area.
 
 Four booklets were produced covering different aspects of stamp collecting and to show the diverse nature of stamp collecting:
-Hyperlink to each booklet.
 
-* Scottish Missionary Mail
-* Scottish Connection to New Zealand
-* Butterflies and Moths
-* Scottish Botanists
+* [Scottish Missionary Mail](pdfs/Scottish-Missionary-Mail.pdf)
+* [Scottish Connection to New Zealand](Scottish-Connection-to-NewZealand.pdf)
+* [Butterflies and Moths](Butterflies-and-Moths.pdf)
+* [Scottish Botanists](Scottish-Botanists.pdf)
