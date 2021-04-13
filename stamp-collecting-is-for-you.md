@@ -13,6 +13,6 @@ Four booklets were produced and were distributed by members to Philatelic Societ
 Four booklets were produced covering different aspects of stamp collecting and to show the diverse nature of stamp collecting:
 
 * [Scottish Missionary Mail](pdfs/Scottish-Missionary-Mail.pdf)
-* [Scottish Connection to New Zealand](Scottish-Connection-to-NewZealand.pdf)
-* [Butterflies and Moths](Butterflies-and-Moths.pdf)
-* [Scottish Botanists](Scottish-Botanists.pdf)
+* [Scottish Connection to New Zealand](pdfs/Scottish-Connection-to-NewZealand.pdf)
+* [Butterflies and Moths](pdfs/Butterflies-and-Moths.pdf)
+* [Scottish Botanists](pdfs/Scottish-Botanists.pdf)
