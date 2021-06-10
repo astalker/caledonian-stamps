@@ -33,4 +33,4 @@ Sheets from the first round can be taken down and replaced by the sheets for the
 ![Room Layout](images/room-layout.png)
 ### Directions
 
-View the [location][location.md] page for details.
+View the [location](./location.md) page for details.
