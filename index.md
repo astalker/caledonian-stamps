@@ -8,9 +8,7 @@ Due to the continuing Covid-19 Pandemic the committee have decided that all soci
 
 The Caledonian Philatelic Society (formed in 1906) exists to promote interest in and encourage the growth of philately and the fellowship that arises from it.
 
-The Society normally meets weekly, on Thursday evenings at 7.30pm, from early October to the middle of December and from early January to mid-March, on 5th floor Graham Hills Building, University of Strathclyde, George Street, Glasgow. Members enjoy talks, members' evenings on different themes, visits from other philatelic societies, annual competitions and an annual social evening, for which a souvenir card is created. Follow the links to find out more about the Society and details of the current syllabus.
-
-[Click here for map of the meeting place.](https://www.google.co.uk/maps/place/Graham+Hills+Building,+University+of+Strathclyde/@55.8607796,-4.2469987,16z/data=!4m12!1m6!3m5!1s0x488846a710bf7599:0xe7b5a9178e7e70d5!2sGraham+Hills+Building,+University+of+Strathclyde!8m2!3d55.8607796!4d-4.2426213!3m4!)
+The Society normally meets weekly, on Thursday evenings at 7.30pm, from early October to the middle of December and from early January to mid-March, on 5th floor Graham Hills Building, University of Strathclyde, George Street, Glasgow. Members enjoy talks, members' evenings on different themes, visits from other philatelic societies, annual competitions and an annual social evening, for which a souvenir card is created.
 
 ## Latest Society News
 
