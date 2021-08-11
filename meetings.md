@@ -33,3 +33,6 @@ May 13 | Wings over ice | Kim Stuckley FRPSL
 May 27 | Fiji | Andy Napier
 Jun 10 | Monte Rosa - Empire Windrush | Harry Jackson
 Jun 24 | AGM | "By whatever means"
+Jul 29 | "Summer Meeting No. 1"
+Aug 19 | "Summer Meeting No. 2"
+Sep 16 | "Summer Meeting No. 3"
