@@ -25,4 +25,4 @@ In previous years, on special occasions, there were Special Diners and one such 
 
 ![Annual Social Evening 1986] (Images/Annual Social Evening 1986.jpg)
 
-![Annniversary Dinner 1924](Images/Anniversary Dinner 1924.jpg)
+![Annniversary Dinner 1924] (Images/Anniversary Dinner 1924.jpg)
