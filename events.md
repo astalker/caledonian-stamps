@@ -23,6 +23,6 @@ The Social Evening was not held in 2020 or 2021 due to the restrictions imposed 
 
 In previous years, on special occasions, there were Special Diners and one such was the Anniversary Dinner in the Charing Cross Hotel in March 1924
 
-1986 Social Evening Souvenir Postcard(Images/Annuaal Social Evening 1986.jpg)
+![Social Evening 1986 Souvenir Postcard](Images/Annuaal Social Evening 1986.jpg)
 
-1924 Annniversary Dinner(Images/Anniversary Dinner 1924.jpg)
+![1924 Annniversary Dinner](Images/Anniversary Dinner 1924.jpg)
