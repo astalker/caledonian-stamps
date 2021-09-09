@@ -6,8 +6,11 @@
 One of the highlights of recent years has been the Social Evening. The first Social Evening was held in 1986 on the SV Carrick. Over the years the Social Evening was held in a variety of different venues:
 
 1986 – 1989 SV Carrick – Moored on Clyde Street, Glasgow
+
 1990 – 1991 Kingspark Hotel, Rutherglen
+
 1992 – 2008 The Wickets Hotel, Glasgow
+
 2009 – 2019 The Hilton, Grosvenor, Glasgow
 
 In recent years the annual competition prize winners were presented with their trophies.
