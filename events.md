@@ -14,7 +14,11 @@ One of the highlights of recent years has been the Social Evening. The first Soc
 2009 – 2019 The Hilton, Grosvenor, Glasgow
 
 In recent years the annual competition prize winners were presented with their trophies.
+
 Much needed funds for the Society were raised at the evening from a silent auction. This would be followed by a quiz ably compiled and compered by Ken Norris.
+
 A souvenir postcard would be produced for each year – the card from the first Social Evening in 1986 is shown below.
+
 The Social Evening was not held in 2020 or 2021 due to the restrictions imposed by the COVID-19 pandemic.
+
 In previous years, on special occasions, there were Special Diners and one such was the Anniversary Dinner in the Charing Cross Hotel in March 1924
