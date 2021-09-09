@@ -22,3 +22,7 @@ A souvenir postcard would be produced for each year – the card from the first 
 The Social Evening was not held in 2020 or 2021 due to the restrictions imposed by the COVID-19 pandemic.
 
 In previous years, on special occasions, there were Special Diners and one such was the Anniversary Dinner in the Charing Cross Hotel in March 1924
+
+1986 Social Evening Souvenir Postcard(Annuakl Social Evening 1986.jpg)
+
+1924 Annniversary Dinner(Anniversary Dinner 1924.jpg)
