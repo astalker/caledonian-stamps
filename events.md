@@ -21,8 +21,8 @@ A souvenir postcard would be produced for each year – the card from the first 
 
 The Social Evening was not held in 2020 or 2021 due to the restrictions imposed by the COVID-19 pandemic.
 
-In previous years, on special occasions, there were Special Diners and one such was the Anniversary Dinner in the Charing Cross Hotel in March 1924
-
-![Annual Social Evening 1986] (Images/Annual-Social-Evening-1986.jpg)
-
-![Annniversary Dinner 1924] (Images/Anniversary-Dinner-1924.jpg)
+####1986 Social Evening Souvenir Cover
+![Annual Social Evening 1986](Images/Annual-Social-Evening-1986.jpg)
+ne
+#### 1924 Anniversary Dimmer
+![Annniversary Dinner 1924](Images/Anniversary-Dinner-1924.jpg)
