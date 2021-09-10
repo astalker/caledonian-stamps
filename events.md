@@ -21,7 +21,7 @@ A souvenir postcard would be produced for each year – the card from the first 
 
 The Social Evening was not held in 2020 or 2021 due to the restrictions imposed by the COVID-19 pandemic.
 
-####1986 Social Evening Souvenir Cover
+#### 1986 Social Evening Souvenir Cover
 
 ![Annual Social Evening 1986](Images/Annual-Social-Evening-1986.jpg)
 
