@@ -23,8 +23,8 @@ The Social Evening was not held in 2020 or 2021 due to the restrictions imposed 
 
 #### 1986 Social Evening Souvenir Cover
 
-![Annual-Social-Evening-1986](Images/Annual-Social-Evening-1986.jpeg)
+![Annual-Social-Evening-1986](images/Annual-Social-Evening-1986.jpg)
 
 #### 1924 Anniversary Dinner
 
-![Annniversary-Dinner-1924](Images/Anniversary-Dinner-1924.jpeg)
+![Annniversary-Dinner-1924](images/Anniversary-Dinner-1924.jpg)
