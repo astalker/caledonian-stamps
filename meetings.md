@@ -3,8 +3,9 @@
 {% include meetings-menu.html %}
 
 ### Current Syllabus
-### 2020 - 2021
-
+### 2021 - 2022
+The meetings listed below will continue to be held using ZOOM.  log in Details will be emailed 
+weekly. Please contact the President if you wish to be added to the invitation list. 
 Date  | Subject | Member
 ----- | ------- | ------
 Oct 7  | A surprise from our new President | Maureen Matheson
