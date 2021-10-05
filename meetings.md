@@ -17,3 +17,6 @@ Nov 4  | The Canal Zone | Mike Ellison
 Nov 11 | Watermarks: from trademarks to modern security "John Dickinson and his Silk Thread Paper"| Wendy Buckle
 Nov 18 | New Zealand Revenues | Paul Woods
 Nov 25 | Early Canada | Graham Searle
+Dec 2 | Machins | David Graham
+DeC 9 | Visit from Leeds Philatelic Society
+Dec 16 | 6 Sheeets from Members on a "Festive" theme
