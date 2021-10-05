@@ -6,11 +6,11 @@
 
  Mrs. M. Morris, DTP, FRPSL, Kenneth Norris, FRPSL & William Neithercut.
 
-**President**: Alistair Burrow
+**President**: Maureen Matheson
 
-**Senior Vice-President**: Mrs Maureen Mathieson
+**Senior Vice-President**: Ian Mason
 
-**Junior Vice-President**: Ian Mason
+**Junior Vice-President**: Vacant
 
 **Secretary**: R.C. Welland
 
@@ -32,6 +32,6 @@
 
 **Committee**:
 
-Dr David Stalker, John Gavin, Ray Baldock and Andrew Black
+Alistair Burrow, John Gavin, Ray Baldock and Andrew Black
 
 **Examiners**: Elizabeth Nairn & Gordon Shepherd
