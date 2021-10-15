@@ -12,13 +12,11 @@ To try and encourage further interest in stamp collecting and philately with a v
 1. [Philatelic Witnesses of the Great War](#philatelic-witnesses-of-the-great-war)
 1. [Stamp Collecting is for You](#stamp-collecting-is-for-you)
 
-## A Century of Scottish Philately
+## A Century of Scottish Philately
 
-In 2006 to celebrate the Centenary of the Caledonian Philatelic Society, the Society compiled and published a book entitled:
+In 2006 to celebrate the Centenary of the Caledonian Philatelic Society, the Society compiled and published a book entitled: **“A Century of Scottish Philately”**.
 
-**“A Century of Scottish Philately”**
-
-The book contains much of interest to all involved in philately.  Its main chapters are :
+The book contains much of interest to all involved in philately. Its main chapters are:
 
 * A Century of Scottish Philately
 * Notable members of the Society
