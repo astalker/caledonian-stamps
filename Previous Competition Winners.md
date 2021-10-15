@@ -1,1 +1,0 @@
-{% include competitions-menu.html %}

@@ -1,6 +1,6 @@
 ## Competitions
 
-{% include competitions-menu.html %}
+[Frank Brown Rose Bowl](#1.-Frank-Brown-Rose-Bowl)
 
 The Caledonian Philatelic Society runs a number of philatelic competitions to encourage members to develop research and upgrade the presentation of their collections. The competitions are geared towards both the new and also the experienced philatelist. It is an ideal opportunity for the less experienced collector to gain initial experience of what is required for competition and exhibiting.
 
