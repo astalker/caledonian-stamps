@@ -1,4 +1,4 @@
-## About Us
+# About Us
 
 Philately (derived from Philos meaning loving and ateles meaning franked) is the collection of all aspects of postage stamps and postal history encompassing a large and varied range of collecting. There is far more to the hobby than simple “stamp collecting” that some may recall from their school days.
 

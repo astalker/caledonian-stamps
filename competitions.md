@@ -16,7 +16,7 @@ The following trophies are awarded to the winners of the Society's annual compet
 1. [Jean M. Campbell Trophy](#jean-m-campbell-trophy)
 1. [Merrylees Trophy](#merrylees-trophy)
 1. [Bill Colley Trophy](#bill-colley-trophy)
-1. [Julia MacLeod Trophy](#julia-macLeod-trophy)
+1. [Julia MacLeod Trophy](#julia-macleod-trophy)
 1. [Cinderella Trophy](#cinderella-trophy)
 1. [Rules applicable to the above competitions](#rules-applicable-to-the-above-competitions)
 1. [Submission of entries](#submission-of-entries)
@@ -42,7 +42,7 @@ Postal History including pre-adhesives, used stamps and postal history, postal m
 Entries in this class can include items on rates and routes and studies of markings and marcophily (the specialised study and collection of postmarks, cancellations and postal markings applied by hand or machine).
 
 [back to top](#trophies-and-entry-criteria)
-## 4. Merrylees Trophy
+## Merrylees Trophy
 Study of a subject or theme as depicted on stamps and other philatelic material.
 
 [back to top](#trophies-and-entry-criteria)
