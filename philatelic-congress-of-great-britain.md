@@ -1,12 +1,12 @@
-## History
+# History
 
-{% include history-menu.html %}
+[back to History](./history)
 
-### Philatelic Congress of Great Britain
+## Philatelic Congress of Great Britain
 
 ![Group Photo](images/2Derby_4.jpg)
 
- 
+
 
 Left to right - Elizabeth Nairn, Alan Wishart, Margaret Morris (Immediate Past President) and Ian Hamilton (President).  Pictured on their recent visit to Derby as part of the preparations for the Philatelic Congress of Great Britain in 2006.
 
@@ -15,7 +15,7 @@ This year's Congress, held in Renfrew in July was organized by the Caledonian Ph
 ![cover](images/70ken.jpg)
 
 
- 
+
 
 The Congress Medal for 2006 was awarded to our Secretary Ken Norris for his service to philately in Scotland.
 
@@ -26,7 +26,7 @@ Ken on the right with Margaret Morris, his sponsor and Professor John West, Chai
 
 This photo appeared in the "ABPS News" issue September 2006.
 
- 
+
 
 And last but not least Julia Macleod won a Penny Black at the Reception hosted by Bonhams at the Congress.
 ![photo2](images/ken0001.jpg)

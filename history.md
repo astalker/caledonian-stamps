@@ -1,6 +1,8 @@
 # History
 
-{% include history-menu.html %}
+[Congress Covers](#congress-covers) /
+[Philatelic Congress of Great Britain](#philatelic-congress-of-great-britain) /
+[Royal Philatelic Society of Great Britain Visit 2006](#royal-philatelic-society-of-great-britain-visit-2006)
 
 1. [Centennial](#centennial)
 1. [Hosting ASPS Annual Congress](#hosting-asps-annual-congress)
@@ -8,10 +10,6 @@
 1. [110th Anniversary](#110th-anniversary)
 
 One of the UK’s longest-running philatelic societies, Caledonian Philatelic Society was founded on 14 February 1906 when a group of stamp collectors met on the premises of Douglas, Cook & Co Stamp Dealers on Sauchiehall Street, Glasgow, and made the decision to form a philatelic society. The group was initially known as the Junior Philatelic Society of Scotland, changing to its current name in 1930. Its first president was Sir John Ure Primrose, Glasgow’s Lord Provost, and he continued as president until his death in 1923. On its 75th anniversary, the Society hosted the annual Congress of Scottish Philatelic Societies at Stirling University. One souvenir produced to mark the anniversary was a miniature sheet depicting a booklet pane with a St Andrews cross which was first printed in 1906, the year that the Society was formed. In its centenary year, the Society hosted the ASPS Congress at Perth; organised the Philatelic Congress of GB in Renfrew in July and gave an invited display to the Royal Philatelic Society London in November 2006. Two special evenings were included in the Syllabus when Past Presidents gave short displays to the members. The society has met at several Glasgow venues over the decades and currently meets weekly from early October to the middle of December and from early January to mid-March on the fifth floor of the Graham Hills Building, University of Strathclyde, George Street. The two thousand-five hundredth meeting of the Society was held on 13 October 2016.
-
-More information on some significant events related to the history of the Caledonian Philatelic Society can be viewed by following the following links.
-
-[back to top](#history)
 
 ## Centennial
 The text below was printed on the insert for the 2006 ASPS Congress Cover, which the Caledonian Philatelic Society hosted in its Centennial year.
@@ -39,6 +37,8 @@ Glasgow has become a natural focal point for knowledge based industries. The cit
 The City has been well recognised by philately. Stamps featuring Glasgow, Glasgow events, Glasgow products and Glaswegians (including adopted ones) abound, issued by postal administrations around the world from St Lucia to Tuvalu. 2006 also marks 50 years of Europa stamps which have commemorated increasing cooperation amongst European states.
 
 In the 21st Century, the Caledonian Philatelic Society also continues to flourish. It meets on Thursdays from October till April in Strathclyde University. Members are recognised for their knowledge and expertise throughout the philatelic world and new members are always made most welcome. We take pride in always showing a welcoming face and can guarantee anyone joining us a very fine evening, and never a fine mess.
+
+[back to top](#history)
 
 ## Hosting ASPS Annual Congress
 2016 marked the 110th Anniversary of the founding of the Caledonian Philatelic Society in 1906. The Society hosted the Association of Scottish Philatelic Societies at the Dewar’s Centre in Perth on April 15 and 16, 2016. Many different activities took place over the year as part of these Celebrations.
