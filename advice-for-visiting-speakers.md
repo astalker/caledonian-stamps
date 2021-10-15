@@ -1,8 +1,6 @@
-# Meetings
+# Advice for visiting speakers
 
 {% include meetings-menu.html %}
-
-## Advice for visiting speakers
 
 Meetings are held in Room GH542 in the Graham Hills Building, Strathclyde University, at 7.30 pm. Please see overleaf for directions. For speakers requiring overnight accommodation rooms can be booked in a Premier Inn Hotel (Glasgow City Centre George Square) which is situated close to our meeting place.
 
