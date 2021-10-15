@@ -1,8 +1,8 @@
-## Publications
+# Publications
 
 {% include publications-menu.html %}
 
-### Stamp Collecting is for You
+## Stamp Collecting is for You
 
 In 2020 to help promote and encourage interest in stamp collecting, the Caledonian Philatelic Society compiled and issued a set of booklets under the banner:
 

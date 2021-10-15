@@ -1,4 +1,4 @@
-## Location
+# Location
 
 Our meeting place is in Room GH542 in the Graham Hills Building in Strathclyde University. This building is located close to the City Centre at 50, George Street, Glasgow, G1 1QE.
 

@@ -37,13 +37,13 @@ The City has been well recognised by philately. Stamps featuring Glasgow, Glasgo
 
 In the 21st Century, the Caledonian Philatelic Society also continues to flourish. It meets on Thursdays from October till April in Strathclyde University. Members are recognised for their knowledge and expertise throughout the philatelic world and new members are always made most welcome. We take pride in always showing a welcoming face and can guarantee anyone joining us a very fine evening, and never a fine mess.
 
-[back to top](#history)
+[^ back to top](#history)
 
 ## Hosting ASPS Annual Congress
 2016 marked the 110th Anniversary of the founding of the Caledonian Philatelic Society in 1906. The Society hosted the Association of Scottish Philatelic Societies at the Dewar’s Centre in Perth on April 15 and 16, 2016. Many different activities took place over the year as part of these Celebrations.
 As is traditional many member exhibited samples of the wide collecting interests at the Host Society display. There was an opportunity to purchase souvenir covers and cards of events which shared the anniversary. King Robert II of Scotland was born in Paisley in 1316 while King James VI of Scotland and I of England was born in Edinburgh in 1566. Therefore their 700th and 450th Anniversaries occurred in 2016. A cover showing images of Robert, Mary Queen of Scots and James VI/I was available for purchase at 50 pence before Congress and 60 pence after the event and serviced covers were available after the Congress at £2.50 each which included the special handstamp and postage and packing. A postcard celebrating the contribution of the King James Bible to the English language with a number of well known sayings on the image side was also on sale at the same prices. The cover produced, along with the two inserts, is shown on the [Congress Covers page](./congress-covers).
 
-[back to top](#history)
+[^ back to top](#history)
 
 ## Congress Covers
 
@@ -77,11 +77,11 @@ As is traditional many member exhibited samples of the wide collecting interests
 <div align="center">Insert with history of The House of Stewart/Stuart</div>
 ![Insert 2](images/insert-2.jpg)
 
-[back to top](#history)
+[^ back to top](#history)
 
 ## 2500th Meeting
 
-[back to top](#history)
+[^ back to top](#history)
 
 ## 110th Anniversary
 2016 marked the 110th Anniversary of the founding of the Caledonian Philatelic Society in 1906. The Society hosted the Association of Scottish Philatelic Societies at the Dewar’s Centre in Perth on April 15 and 16, 2016. Many different activities took place over the year as part of these Celebrations.
@@ -92,7 +92,7 @@ Dr Stewart Gardiner compiled a book entitled “Philatelic Witnesses to the Grea
 
 Joan Trew also produced a specially commissioned display which charted some of the events which happened during the latter part of the dynasty and events such as the Gunpowder Plot were illustrated by stamps and covers.
 
-[back to top](#history)
+[^ back to top](#history)
 
 ## Philatelic Congress of Great Britain
 
@@ -132,9 +132,9 @@ This photo appeared in the "ABPS News" issue September 2006.
 The report of the meeting on the Renfrewshire Council's website has been deleted
 
 
-[back to top](#history)
+[^ back to top](#history)
 
-## The Royal Philatelic Society
+## Royal Philatelic Society of Great Britain Visit 2006
 
 ![rpsl-visit-header](images/rpsl-visit.png)
 
@@ -220,7 +220,7 @@ from Malta under the emergency Powers Act.
 
 Malawi was granted independence on 6th July 1964 and celebrated the event with an Independence Trade fair from 4-6 July. An unusual air letter was produced canceling a Nyasaland stamp with a Malawi canceltwo days before Independence and Lilongwe P. S. landed in hot water by using the sacrosanct cockerel emblem for an FDC. Numerous varieties were produced before Malawi was given Republic status in 1966.
 
-### Fr.     Crimea: Covers and Cards
+### Fr. Crimea: Covers and Cards
 
 The war against Russia, more commonly known today as The Crimean War, started in October 1853 when the Turks declared war on the Russians who had occupied Moldavia and Wallachia - still part of the Ottoman Empire at the time. The Turks had an alliance with France and France with Britain and they joined in during March 1854, the war lasted until 1856.
 
@@ -290,4 +290,4 @@ A selection of postcards illustrating the conventions used and problems encounte
 
 The Philatelic Congress of Great Britain has been hosted by Philatelic Societies throughout Britain in many different venues. This display shows special postmarks and labels from the earlier events.
 
-[back to top](#history)
+[^ back to top](#history)

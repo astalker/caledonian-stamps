@@ -1,11 +1,11 @@
-## Meetings
+# Meetings
 
 {% include meetings-menu.html %}
 
-### Previous Meetings
+## Previous Meetings
 
 Syllabi for the last 8 years of meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction.
-### 2020 - 2021
+## 2020 - 2021
 
 Date  | Subject | Member
 ----- | ------- | ------
@@ -39,7 +39,7 @@ Jul 29  | "Summer Meeting No. 1"
 Aug 19  | "Summer Meeting No. 2"
 Sep 16  | "Summer Meeting No. 3"
 
-### 2019 - 2020
+## 2019 - 2020
 
 Date  | Subject | Member
 ----- | ------- | ------
@@ -67,7 +67,7 @@ Mar 12 | Goats and butterflies | Graham Winters FRPSL
 Mar 19 | Indian Mutiny | Max Smith
 Apr 2 | AGM |
 
-### 2018 - 2019
+## 2018 - 2019
 
 Date  | Subject | Member
 ----- | ------- | ------
@@ -95,7 +95,7 @@ Mar 14 | Aspects of Ceylon | Graham Winters FRPSL
 Mar 21 | Aotearoa Unwrapped | Elizabeth Nairn
 Apr 4 | AGM |  
 
-### 2017 - 2018
+## 2017 - 2018
 
 Date  | Subject | Member
 ----- | ------- | ------
@@ -123,7 +123,7 @@ Mar 15 | Greenland  | George Henshilwood
 Mar 22 | Alcohol on Postcards and Harry Lauder | David and Marjorie Mekie
 Apr 5 | AGM |  
 
-### 2016 - 2017
+## 2016 - 2017
 
 Date  | Subject | Member
 ----- | ------- | ------
@@ -152,7 +152,7 @@ Mar 16 | Visit by Ayrshire Philatelic Society |
 Mar 23 | American War of Independence | Robert Catto 
 Apr 6 | AGM |
 
-### 2015 - 2016
+## 2015 - 2016
 
 Date  | Subject | Member
 ----- | ------- | ------
@@ -180,7 +180,7 @@ Mar 10 | An Encounter with Cinderella | Don Millington
 Mar 17 | Papua New Guinea | Jean Osborne
 Apr 7 | AGM |
 
-### 2014 - 2015
+## 2014 - 2015
 
 Date  | Subject | Member
 ----- | ------- | ------
@@ -208,7 +208,7 @@ Mar 12 | 70 Years a Member | Stuart R Mackenzie
 Mar 19 | British Censorship of Civilian Mails in WWI | Graham Mark
 Apr 9 | AGM |
 
-### 2013 - 2014
+## 2013 - 2014
 
 Date  | Subject | Member
 ----- | ------- | ------
@@ -236,7 +236,7 @@ Mar 13 | Britannia - War and Peace | Michael Rennie
 Mar 20 | Early Scottish Letters with an Edinburgh Miscellany | Malcolm Fenning.
 Apr 3 | AGM |
 
-### 2012 - 2013
+## 2012 - 2013
 
 Date  | Subject | Member
 ----- | ------- | ------

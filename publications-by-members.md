@@ -1,5 +1,5 @@
-## Publications
+# Publications
 
 {% include publications-menu.html %}
 
-### Publications by Members
+## Publications by Members

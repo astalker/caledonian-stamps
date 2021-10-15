@@ -1,4 +1,4 @@
-## Committee
+# Committee
 
 **Hon. President**: Mr W. Colley, FRPSL
 

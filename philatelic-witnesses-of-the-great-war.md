@@ -1,8 +1,8 @@
-## Publications
+# Publications
 
 {% include publications-menu.html %}
 
-### Philatelic Witnesses of the Great War
+## Philatelic Witnesses of the Great War
 
 In 2016 to celebrate the 110th Anniversary of the Caledonian Philatelic Society, the hosting of the Annual Congress of the Association of Scottish Philatelic Societies on April 15th and 16th 2016 and to add to the great public interest in the Centenary of the Great War of 1914 - 1919 the Society compiled and published a book entitled:
 

@@ -1,4 +1,4 @@
-## Past Presidents
+# Past Presidents
 
 Date    | President
 ------- | -------
