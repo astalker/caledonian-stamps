@@ -2,7 +2,7 @@
 
 {% include history-menu.html %}
 
-### Centennial
+## Centennial
 The text below was printed on the insert for the 2006 ASPS Congress Cover, which the Caledonian Philatelic Society hosted in its Centennial year.
 
 Further detail is given in the book , entitled "The Caledonian Philatelic Society 1906 - 2006 - A Century of Scottish Philately" which is given in more detail in the Publications tab.

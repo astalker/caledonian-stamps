@@ -1,11 +1,11 @@
-## Meetings
+# Meetings
 
 {% include meetings-menu.html %}
 
-### Current Syllabus
-### 2021 - 2022
-The meetings listed below will continue to be held using ZOOM.  Log in Details will be emailed 
-weekly. Please contact the President if you wish to be added to the invitation list. 
+## Current Syllabus
+## 2021 - 2022
+The meetings listed below will continue to be held using ZOOM.  Log in Details will be emailed
+weekly. Please contact the President if you wish to be added to the invitation list.
 
 Date  | Subject | Member
 ----- | ------- | ------
