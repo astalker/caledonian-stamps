@@ -90,7 +90,7 @@ The Caledonian Philatelic Society has had an illustrious past as outlined in thi
 
 We all look forward to the next session during which the Society takes centre stage and will host the Philatelic Congress of Great Britain for the second time and the Congress of Association of Scottish Philatelic Societies for the eighth time
 
-[^ back to top](#caledonian-philatelic-society-publications)
+[back to top](#caledonian-philatelic-society-publications)
 
 ## Philatelic Witnesses of the Great War
 
@@ -113,7 +113,7 @@ Contents covered are:
 * Far Flung Places – Eastern Europe
 * Aftermath and Consequences
 
-[^ back to top](#caledonian-philatelic-society-publications)
+[back to top](#caledonian-philatelic-society-publications)
 
 # Stamp Collecting is for You
 
@@ -131,4 +131,4 @@ Four booklets were produced covering different aspects of stamp collecting and t
 * [Scottish Botanists](pdfs/Scottish-Botanists.pdf)
 
 
-[^ back to top](#caledonian-philatelic-society-publications)
+[back to top](#caledonian-philatelic-society-publications)
