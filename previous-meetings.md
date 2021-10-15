@@ -1,4 +1,4 @@
-# Previous Meetings
+# Previous Meetings
 
 [Current Syllabus](./meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
