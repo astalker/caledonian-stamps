@@ -27,12 +27,20 @@ The following trophies are awarded to the winners of the Society's annual compet
 ## Frank Brown Rose Bowl
 General or specialised collections of stamps issued before 1st January 1940.
 
+Year | Winner
+---- | ------
+2021 | I.M Winner
+
 [back to top](#trophies-and-entry-criteria)
 
 ## Fairbairn Salver
 General or specialised collections of stamps issued on or after 1st January 1940.
 
 For both of these trophies material can be specialized or non-specialized and can include studies, proofs and essays. It can also include fiscal, revenue and other non-postal stamps, (experimental, locals, telegtaphs etc.). For the purposes of this competition these latter items are defined as material not recognised for the international transmission of mail but accepted as being used locally or generally for the transmission of messages and packages, e.g. local, railway or telegraph or for the collection of non-postal revenue.
+
+Year | Winner
+---- | ------
+2021 | I.M Winner
 
 [back to top](#trophies-and-entry-criteria)
 
@@ -41,13 +49,25 @@ Postal History including pre-adhesives, used stamps and postal history, postal m
 
 Entries in this class can include items on rates and routes and studies of markings and marcophily (the specialised study and collection of postmarks, cancellations and postal markings applied by hand or machine).
 
+Year | Winner
+---- | ------
+2021 | I.M Winner
+
 [back to top](#trophies-and-entry-criteria)
 ## Merrylees Trophy
 Study of a subject or theme as depicted on stamps and other philatelic material.
 
+Year | Winner
+---- | ------
+2021 | I.M Winner
+
 [back to top](#trophies-and-entry-criteria)
 ## Bill Colley Trophy
 Study of philately prepared for and conveyed by airmail, whether official or unofficial. Exhibits which consist solely of airmail stamps will also be judged in this class.
+
+Year | Winner
+---- | ------
+2021 | I.M Winner
 
 [back to top](#trophies-and-entry-criteria)
 ## Julia MacLeod Trophy
@@ -57,11 +77,19 @@ An exhibit can have a geographical (topographical) treatment, including for exam
 
 The size, shape and material of the Picture Postcards may vary. The emphasis is on the picture, and not on the use or philatelic peculiarities (if present). Picture Postcards may be unused or used (sent through a mail system). Unused Picture Postcards should have printed address lines, stamp box, or other such markings, showing that the item was intended to be sent without cover.
 
+Year | Winner
+---- | ------
+2021 | I.M Winner
+
 [back to top](#trophies-and-entry-criteria)
 ## Cinderella Trophy
 This may include local stamps, telegraph stamps, railway stamps, revenues/fiscals, forgeries, bogus and phantom issues. Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels etc.
 
 However, things such as trade, cigarette and telephone cards (unless the image of a stamp is incorporated in the design), matchbox or cheese labels, aerial propaganda leaflets, and other forms of ephemera like emergency money are not considered as Cinderella items for this purpose.
+
+Year | Winner
+---- | ------
+2021 | I.M Winner
 
 [back to top](#trophies-and-entry-criteria)
 ## Rules applicable to the above competitions
@@ -88,6 +116,10 @@ See https://www.scottishphilately.co.uk/rules.php (National Exhibition - Advice 
 ## The President's Cup
 This is awarded to the best competition entry of no less than 16 sheets by a member who has not previously won an award in Society competitions (including this cup). All relevant entries to all competitions will automatically be considered for this award. An award will only be made if there is an entry of an acceptable standard.
 
+Year | Winner
+---- | ------
+2021 | I.M Winner
+
 [back to top](#trophies-and-entry-criteria)
 
 ## Rules for the President's Cup Competition
@@ -102,5 +134,9 @@ General rules 1, 2 and 3 above apply.
 ## The Caledonian Rose Bowl
 
 The Caledonian Rose Bowl is awarded each year for the best display given to the Society by a Society Member. Judging of displays will be made by the immediate past President and two other member of the Society. Eligibility for this award can be either a full display (2 rounds) or a half display (1 round).
+
+Year | Winner
+---- | ------
+2021 | I.M Winner
 
 [back to top](#trophies-and-entry-criteria)
