@@ -1,6 +1,6 @@
 # Current Syllabus
 
-{% include meetings-menu.html %}
+[Previous Meetings](./previous-meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
 ## 2021 - 2022
 The meetings listed below will continue to be held using ZOOM.  Log in Details will be emailed

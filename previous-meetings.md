@@ -1,6 +1,6 @@
 # Previous Meetings
 
-{% include meetings-menu.html %}
+[Current Syllabus](./meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
 Syllabi for the last 8 years of meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction.
 ## 2020 - 2021
