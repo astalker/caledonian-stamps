@@ -1,8 +1,8 @@
-## Events
+# Events
 
-### Kelvin Hall Open Days and Chinese New Year
+## Kelvin Hall Open Days and Chinese New Year
 
-### Social Evening
+## Social Evening
 One of the highlights of recent years has been the Social Evening. The first Social Evening was held in 1986 on the SV Carrick. Over the years the Social Evening was held in a variety of different venues:
 
 1986 – 1989 SV Carrick – Moored on Clyde Street, Glasgow
@@ -21,10 +21,10 @@ A souvenir postcard would be produced for each year – the card from the first 
 
 The Social Evening was not held in 2020 or 2021 due to the restrictions imposed by the COVID-19 pandemic.
 
-#### 1986 Social Evening Souvenir Cover
+### 1986 Social Evening Souvenir Cover
 
 ![Annual-Social-Evening-1986](images/Annual-Social-Evening-1986.jpg)
 
-#### 1924 Anniversary Dinner
+### 1924 Anniversary Dinner
 
 ![Annniversary-Dinner-1924](images/Anniversary-Dinner-1924.jpg)

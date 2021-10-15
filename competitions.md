@@ -9,7 +9,7 @@ Many of the club's more eminent philatelists have gone on to win prizes at Natio
 ### Competition Rules
 The following trophies are awarded to the winners of the Society's annual competitions. The entries for these competitions are judged by two ABPS accredited judges, who are not members of the Society. Entries are judged before the Competition night and feedback is provided to the entrants on that night. The criteria for each completion class is based on those of the Association of Scottish Philatelic Societies (ASPS) and more detail and extracts from ASPS rules and guidance on the requirements is shown under each trophy description.
 
-## Trophies and entry criteria
+# Trophies and entry criteria
 
 1. [Frank Brown Rose Bowl](#frank-brown-rose-bowl)
 1. [Fairbairn Salver](#fairbairn-salver)

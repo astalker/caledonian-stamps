@@ -1,4 +1,4 @@
-## Forgery Collection
+# Forgery Collection
 
 The Forgery Collection was established in February 1924 under the stewardship of Hugh Monro, the incumbent President. Up until then the Society made donations to the forgery collection held by the Philatelic Congress of Great Britain. The collection has been enhanced over the years by many donations and looked after by J R Raeburn, Donald Chisholm, James Merrylees, R Kerr, Bert Mendelsohn, Jim Fairbairn, Graham Hoey, Garry Buchanan , Alan Wishart and now by the current forgery warden Stewart Gardiner and it is available for consultation by members on request.
 
@@ -9,7 +9,7 @@ The collection contains some very scarce material including the scarce Mauritius
 
 ![Red and Black stamps](./images/forgery-collection-red-black.jpeg)
 
-### Tutorials
+## Tutorials
 
 A very useful part of the collection is a series of “tutorial” pages that provide clear examples and explanations of:
 
@@ -38,7 +38,7 @@ The collection provides guidance on how to distinguish genuine stamps from forge
 
 Page on “Repaired Stamps” from the tutorial section of the collection
 
-### Great Britain and Commonwealth
+## Great Britain and Commonwealth
 
 Country | Notes |
 --- | ---
@@ -81,7 +81,7 @@ Western Australia | One engraved and a good range of lithographed forgeries of t
 
 Page on the forgery of the 1/- green Great Britain “Stock Exchange”
 
-### Foreign
+## Foreign
 
 Country | Notes |
 --- | ---
