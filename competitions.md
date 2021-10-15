@@ -6,6 +6,9 @@ Competitions are held on an annual basis.
 
 Many of the club's more eminent philatelists have gone on to win prizes at National and International level - club competition was their starting point. In addition to comments from the judge, fellow members will be pleased to provide advice, tips and encouragement. The rules of the various competitions are outlined below or can be obtained from the Secretary.
 
+### Competition Rules
+The following trophies are awarded to the winners of the Society's annual competitions. The entries for these competitions are judged by two ABPS accredited judges, who are not members of the Society. Entries are judged before the Competition night and feedback is provided to the entrants on that night. The criteria for each completion class is based on those of the Association of Scottish Philatelic Societies (ASPS) and more detail and extracts from ASPS rules and guidance on the requirements is shown under each trophy description.
+
 1. [Frank Brown Rose Bowl](#frank-brown-rose-bowl)
 1. [Fairbairn Salver](#fairbairn-salver)
 1. [Jean M. Campbell Trophy](#jean-m-campbell-trophy)
@@ -14,23 +17,24 @@ Many of the club's more eminent philatelists have gone on to win prizes at Natio
 1. [Julia MacLeod Trophy](#julia-macLeod-trophy)
 1. [Cinderella Trophy](#cinderella-trophy)
 1. [Rules applicable to the above competitions](#rules-applicable-to-the-above-competitions)
+1. [Submission of entries](#submission-of-entries)
+1. [The President's Cup](#the-presidents-cup)
+1. [Rules for the President's Cup Competition](#rules-for-the-presidents-cup-competition)
+1. [The Caledonian Rose Bowl](#the-caledonian-rose-bowl)
 
-**Competition Rules**.
-The following trophies are awarded to the winners of the Society's annual competitions. The entries for these competitions are judged by two ABPS accredited judges, who are not members of the Society. Entries are judged before the Competition night and feedback is provided to the entrants on that night. The criteria for each completion class is based on those of the Association of Scottish Philatelic Societies (ASPS) and more detail and extracts from ASPS rules and guidance on the requirements is shown under each trophy description.
-
-## 1. Frank Brown Rose Bowl
+## Frank Brown Rose Bowl
 General or specialised collections of stamps issued before 1st January 1940.
 
 [back to top](#competitions)
 
-## 2. Fairbairn Salver
+## Fairbairn Salver
 General or specialised collections of stamps issued on or after 1st January 1940.
 
 For both of these trophies material can be specialized or non-specialized and can include studies, proofs and essays. It can also include fiscal, revenue and other non-postal stamps, (experimental, locals, telegtaphs etc.). For the purposes of this competition these latter items are defined as material not recognised for the international transmission of mail but accepted as being used locally or generally for the transmission of messages and packages, e.g. local, railway or telegraph or for the collection of non-postal revenue.
 
 [back to top](#competitions)
 
-## 3. Jean M. Campbell Trophy
+## Jean M. Campbell Trophy
 Postal History including pre-adhesives, used stamps and postal history, postal markings, cancellations etc.. Mint stamps and unused postal stationery are not normally included.
 
 Entries in this class can include items on rates and routes and studies of markings and marcophily (the specialised study and collection of postmarks, cancellations and postal markings applied by hand or machine).
@@ -40,11 +44,11 @@ Entries in this class can include items on rates and routes and studies of marki
 Study of a subject or theme as depicted on stamps and other philatelic material.
 
 [back to top](#competitions)
-## 5. Bill Colley Trophy
+## Bill Colley Trophy
 Study of philately prepared for and conveyed by airmail, whether official or unofficial. Exhibits which consist solely of airmail stamps will also be judged in this class.
 
 [back to top](#competitions)
-## 6. Julia MacLeod Trophy
+## Julia MacLeod Trophy
 Picture postcards depicting a subject or theme.
 
 An exhibit can have a geographical (topographical) treatment, including for example illustrations from a place or an area. It can also be developed thematically. An event may be shown as a form of reportage, or the exhibit may have the photographer, the artist, or the printer as the topic. Original thinking and creativity may also lead to different treatments of an exhibit.
@@ -52,7 +56,7 @@ An exhibit can have a geographical (topographical) treatment, including for exam
 The size, shape and material of the Picture Postcards may vary. The emphasis is on the picture, and not on the use or philatelic peculiarities (if present). Picture Postcards may be unused or used (sent through a mail system). Unused Picture Postcards should have printed address lines, stamp box, or other such markings, showing that the item was intended to be sent without cover.
 
 [back to top](#competitions)
-## 7. Cinderella Trophy
+## Cinderella Trophy
 This may include local stamps, telegraph stamps, railway stamps, revenues/fiscals, forgeries, bogus and phantom issues. Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels etc.
 
 However, things such as trade, cigarette and telephone cards (unless the image of a stamp is incorporated in the design), matchbox or cheese labels, aerial propaganda leaflets, and other forms of ephemera like emergency money are not considered as Cinderella items for this purpose.
