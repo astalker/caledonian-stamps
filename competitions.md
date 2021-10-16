@@ -281,5 +281,63 @@ Year | Winner | Title of display
 ---- | ------ |  --------------
 1960 | J. S. Merrylees | Early France
 1961 | A. McMillan | Antarctica
+1962 | C. E. Kinners | Early Austria
+1963 | W. R. Rae | Wildlife
+1964 | G. Saville Smith | Ireland
+1965 | E. S. C. Lauder | South Africa
+1966 | Herman H. Hirst | Palestine
+1967 | I. Smillie | Rhodesia
+1968 | C. S. Taylor | India
+1969 | J. D. Todd | Chile
+1970 | S. R. MacKenzie | Early Switzerland
+1971 | J. D. Todd | Gold Coast
+1972 | J. S. Merrylees | Latvia
+1973 | J. W. Fairburn | New Zealand
+1974 | S. Gilmour | Scottish Postal History
+1975 | J. S. Merrylees | 300 Years Great Britain
+1976 | Herman H. Hirst | Middle East
+1977 | E. Morris | 100 Years Penny Stamp
+1978 | H. Moreton Black | Bahamas
+1979 | Mrs M. I. Morris | Man and the Whale
+1980 | C. n. Richardson | Balloon Mail
+1981 | R. Beith | Scottish Air Mails
+1982 | S. R. MacKenzie | Highlands Postal History
+1983 | G. C. Buchanan | Military Mail
+1984 | D. Woolley | Railway Postal History
+1985 | A. Baird | Austria
+1986 | S. R. MacKenzie | Switzerland
+1987 | C. g. Breddy | British Levant |
+1988 | G. MacKenzie | Glasgow Postal History
+1989 | H. S. H. Bidmead | French Postal History
+1990 | Alex Greer | The Wallacce papers
+1991 | D. Woolley | Scottish Railway Postal History
+1992 | I. M. Dyce | Straits Settlements
+1993 | D. Robiinson | British Oversaes Mail
+1994 | J. A. Brown | Ceylon
+1995 | S Sankus | SA Civil War
+1996 | S. g. Hoey | Bahamas
+1997 | Mrs M. I. Morris | Iceland
+1998 | A. Forbes | Australia
+1999 | T. j. Woods | Chile
+2000 | W. Neithercut |Airmails to Dutch East Indies
+2001 | R. Beith | Free Czech Forces
+2002 | R. Walker | The Sahara
+200 | Alex Greer | Renfrewshire Postal History
+2004 |  W. Colley | Africa Par Avion
+2005 | I.  M. dyce | Mail from Eastern Seas
+2006 | D. Woolley | Newspapers and the  Post
+2007 | G. Shepherd | American Civil War
+2008 | C. G. Breddy | The Martians have Landed
+2009 | A. t. Wishart | Tsarist Russia
+2010  | I. L. Evans | Two Queens
+2011 | Mrs M.  I. Morris | An international Peaceful Science
+2012 | W. Colley | East Africa in W. W. II
+2013 | Miss j. Trew | Classical Music
+2014 | R. Watt | MilitariaR
+2015 | S. R. MacKenzie | 70 Years a Member
+2016 | S. Gardiner | A Tour Round Africa
+2017 | D. A. Cumming | Aspects of Argentina
+2018 | S. Gardiner | A Victorian Phenomenon
+2019 | S. Gardiner | The Levant
 
 [back to top](#trophies-and-entry-criteria)
