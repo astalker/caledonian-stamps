@@ -215,7 +215,13 @@ The size, shape and material of the Picture Postcards may vary. The emphasis is 
 
 Year | Winner
 ---- | ------
-2021 | I.M Winner
+2014 | J. W. Kirkpatrick
+2015 | R. Walker
+2016 | J. C. MacLeod
+2017 | Mrs M I. Morris
+2018 | P. McGowan
+2019 | R. Walker
+2020 | R. Walker
 
 [back to top](#trophies-and-entry-criteria)
 ## Cinderella Trophy
