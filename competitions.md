@@ -128,7 +128,7 @@ Year | Winner
 2015 | G. Henshilwood
 2016 | D. Stalker
 2019 | G. Henshilwood
-2020 | D. stalker
+2020 | D. Stalker
 
 [back to top](#trophies-and-entry-criteria)
 
@@ -139,7 +139,55 @@ Entries in this class can include items on rates and routes and studies of marki
 
 Year | Winner
 ---- | ------
-2021 | I.M Winner
+1971 | J. S. Merrylees
+1972 | J. W. Fairburn
+1973 | G. C. Buchanan
+1974 | Mrs J. T. Cameron
+1975 | S. N. Gardiner
+1976 | T. Cowell
+1977 | A. Baird
+1978 | I. L. Evans
+1980 | R. C. Welland
+1981 | D. Woolley
+1982 | I. M. Dyce
+1983 | T. j. Woods
+1984 | T. j. Woods
+1985 | I. T. Boyle
+1986 | W. Colloey
+1987 | C. Breddy
+1988 | D. P. Robinson
+1989 | C. y. Reid
+1990 | C. Y. Reid
+1991 | P. McGowan
+1992 | W. Colley
+1993 | I. M. Dyce
+1994 | C. Y. Reid
+1995 | D. P. Robinson
+1996 | T. J. Woods
+1997 | D. P. Robinson
+1998 | C. y. Reid
+1999 | S. N. Gardiner
+2000 | A. D. MacCalman
+2001 | T. J. Woods
+2002 | T. J. Woods
+2003 | I. L. Evans
+2004 | I. M. Dyce
+2005 | j. Morgan
+2006 | I. L. Evans
+2007 | I. L. Evans
+2008 | W. Colley
+2009 | S. N. Gardiner
+2010 | I. L. Evans
+2011 | S. N. Gardiner
+2012 | I. L. Evans
+2013 | I. M. Evans
+2014 | A. G. Blakeley
+2015 | T. J. Woods
+2016 | A. G. Blakeley
+2017 | S. N. Gardiner
+2018 | S. N. Gardiner
+2019 | S. N. Gardiner
+2020 | A. G. Blakeley
 
 [back to top](#trophies-and-entry-criteria)
 ## Merrylees Trophy
