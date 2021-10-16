@@ -9,7 +9,7 @@ Many of the club's more eminent philatelists have gone on to win prizes at Natio
 ### Competition Rules
 The following trophies are awarded to the winners of the Society's annual competitions. The entries for these competitions are judged by two ABPS accredited judges, who are not members of the Society. Entries are judged before the Competition night and feedback is provided to the entrants on that night. The criteria for each completion class is based on those of the Association of Scottish Philatelic Societies (ASPS) and more detail and extracts from ASPS rules and guidance on the requirements is shown under each trophy description.
 
-# Trophies and entry criteria
+To see the details of each category and rules as well as lists of previous winners click on the links below.
 
 1. [Frank Brown Rose Bowl](#frank-brown-rose-bowl)
 1. [Fairbairn Salver](#fairbairn-salver)
@@ -277,8 +277,9 @@ General rules 1, 2 and 3 above apply.
 
 The Caledonian Rose Bowl is awarded each year for the best display given to the Society by a Society Member. Judging of displays will be made by the immediate past President and two other member of the Society. Eligibility for this award can be either a full display (2 rounds) or a half display (1 round).
 
-Year | Winner
----- | ------
-2021 | I.M Winner
+Year | Winner | Title of display
+---- | ------ |  --------------
+1960 | J. S. Merrylees | Early France
+1961 | A. McMillan | Antarctica
 
 [back to top](#trophies-and-entry-criteria)
