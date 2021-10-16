@@ -63,7 +63,7 @@ Year | Winner
 1993 | T. J. Woods
 1994 | C. Y. Reid
 1995 | W. Colley
-1996 | S. Gaerdiner
+1996 | S. Gardiner
 1997 | Mrs M. I. Morris
 1998 | C. Y. Reid
 1999 | S. Gardiner
@@ -75,7 +75,7 @@ Year | Winner
 2006 | I. D. Smith
 2007 | W. A. King
 2008 | S. Gardiner
-2009 | C. g. Breddy
+2009 | C. G. Breddy
 2010 | I. L. Evans
 2011 | S. Gardiner
 2013 | G. Henshilwood
@@ -96,7 +96,39 @@ For both of these trophies material can be specialized or non-specialized and ca
 
 Year | Winner
 ---- | ------
-2021 | I.M Winner
+1972 | J. S. Merrylees
+1973 | Muriel G. Wilson
+1974 | G. Norman Smith
+1975 | T. G. R. Erskine
+1976 | W. Colley
+1978 | W. Colley
+1980 | I. D. Smith
+1981 | I. D. Smith
+1982 | S. Graham Hoey
+1983 | I. D. Smith
+1984 | J. A. Forshaw
+1985 | A. j. Taylor
+1988 | P. McGowan
+1989 | C. Y. Reid
+1992 | I. D. Smith
+1994 | I. M. Dyce
+1995 | W. Spalding
+1996 | I. D. Smith
+1997 | I. D. Smith
+2001 | I. D. Smith
+2002 | I. D. Smith
+2003 | I. D. Smith
+2004 | I. D. Smith
+2006 | S. K. Hunter
+2007 | S. Gardiner
+2008 | C. Moffat
+2009 | Rev. J. C. Caskie
+2013 | A. j. Kerr
+2014 | A. J. Kerr
+2015 | G. Henshilwood
+2016 | D. Stalker
+2019 | G. Henshilwood
+2020 | D. stalker
 
 [back to top](#trophies-and-entry-criteria)
 
