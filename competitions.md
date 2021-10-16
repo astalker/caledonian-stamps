@@ -299,14 +299,14 @@ Year | Winner | Title of display
 1977 | E. Morris | 100 Years Penny Stamp
 1978 | H. Moreton Black | Bahamas
 1979 | Mrs M. I. Morris | Man and the Whale
-1980 | C. n. Richardson | Balloon Mail
+1980 | C. N. Richardson | Balloon Mail
 1981 | R. Beith | Scottish Air Mails
 1982 | S. R. MacKenzie | Highlands Postal History
 1983 | G. C. Buchanan | Military Mail
 1984 | D. Woolley | Railway Postal History
 1985 | A. Baird | Austria
 1986 | S. R. MacKenzie | Switzerland
-1987 | C. g. Breddy | British Levant |
+1987 | C. G. Breddy | British Levant |
 1988 | G. MacKenzie | Glasgow Postal History
 1989 | H. S. H. Bidmead | French Postal History
 1990 | Alex Greer | The Wallacce papers
@@ -315,22 +315,22 @@ Year | Winner | Title of display
 1993 | D. Robiinson | British Oversaes Mail
 1994 | J. A. Brown | Ceylon
 1995 | S Sankus | SA Civil War
-1996 | S. g. Hoey | Bahamas
+1996 | S. G. Hoey | Bahamas
 1997 | Mrs M. I. Morris | Iceland
 1998 | A. Forbes | Australia
-1999 | T. j. Woods | Chile
+1999 | T. J. Woods | Chile
 2000 | W. Neithercut |Airmails to Dutch East Indies
 2001 | R. Beith | Free Czech Forces
 2002 | R. Walker | The Sahara
-200 | Alex Greer | Renfrewshire Postal History
-2004 |  W. Colley | Africa Par Avion
+2003 | Alex Greer | Renfrewshire Postal History
+2004 | W. Colley | Africa Par Avion
 2005 | I.  M. dyce | Mail from Eastern Seas
 2006 | D. Woolley | Newspapers and the  Post
 2007 | G. Shepherd | American Civil War
 2008 | C. G. Breddy | The Martians have Landed
-2009 | A. t. Wishart | Tsarist Russia
-2010  | I. L. Evans | Two Queens
-2011 | Mrs M.  I. Morris | An international Peaceful Science
+2009 | A. T. Wishart | Tsarist Russia
+2010 | I. L. Evans | Two Queens
+2011 | Mrs M. I. Morris | An international Peaceful Science
 2012 | W. Colley | East Africa in W. W. II
 2013 | Miss j. Trew | Classical Music
 2014 | R. Watt | MilitariaR
