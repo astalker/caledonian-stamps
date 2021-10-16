@@ -2,7 +2,7 @@
 
 The Caledonian Philatelic Society runs a number of philatelic competitions to encourage members to develop research and upgrade the presentation of their collections. The competitions are geared towards both the new and also the experienced philatelist. It is an ideal opportunity for the less experienced collector to gain initial experience of what is required for competition and exhibiting.
 
-Competitions are held on an annual basis.
+Competitions are held on an annual basis. For each trophy a list of the winners is shown. Where there are missing years there were no entrants.
 
 Many of the club's more eminent philatelists have gone on to win prizes at National and International level - club competition was their starting point. In addition to comments from the judge, fellow members will be pleased to provide advice, tips and encouragement. The rules of the various competitions are outlined below or can be obtained from the Secretary.
 
@@ -29,7 +29,63 @@ General or specialised collections of stamps issued before 1st January 1940.
 
 Year | Winner
 ---- | ------
-2021 | I.M Winner
+1960 | A. Harrold
+1961 | J. S. Merrylees
+1962 | S. Graham Hoey
+1963 | W. Thomson
+1964 | J. S. Merryleees
+1965 | A. McMiillan
+1966  |G. Saville Smith
+1967 | J. W. Fairbairn
+1968 | S. Graham Hoey
+1969 | Ms. Janet T. Cameron
+1970 | A. Harrold
+1971 | S. F. ilmour
+1972 | T. Cowell
+1973 | J. S. Merrylees
+1974 | S. Graham Hoey
+1975 | G. C. Buchanan
+1976 | I. L. Evans
+1977 | I. M. Dyce
+1978 | G. C. Buchanan
+1980 | D. Woolley
+1981 | A. Baird
+1982 | D. Woolley
+1983 | W. Colley
+1984 | G. MacKenzie
+1985 |S. Graham Hoey
+1986 | W. Spalding
+1987 | C. Y. Reid
+1988 | D. P. Robinson
+1989 | D. P. Robinson
+1991 | W. Colley
+1992 | S. Gardiner
+1993 | T. J. Woods
+1994 | C. Y. Reid
+1995 | W. Colley
+1996 | S. Gaerdiner
+1997 | Mrs M. I. Morris
+1998 | C. Y. Reid
+1999 | S. Gardiner
+2000 | T. J. Woods
+2001 | I. D. Smith
+2002 | C. Y. Reid
+2003 | C. Y. Reid
+2004 | C. Y. Reid
+2006 | I. D. Smith
+2007 | W. A. King
+2008 | S. Gardiner
+2009 | C. g. Breddy
+2010 | I. L. Evans
+2011 | S. Gardiner
+2013 | G. Henshilwood
+2014 | G. Henshilwood
+2015 | A. G. Blakeley
+2016 | G. Henshilwood
+2017 | G. Henshilwood
+2018 | G. Henshilwood
+2019 | S. Gardiner
+2020 | G.Henshilwood
 
 [back to top](#trophies-and-entry-criteria)
 
