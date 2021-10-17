@@ -35,12 +35,12 @@ Year | Winner
 1963 | W. Thomson
 1964 | J. S. Merryleees
 1965 | A. McMiillan
-1966  |G. Saville Smith
+1966 | G. Saville Smith
 1967 | J. W. Fairbairn
 1968 | S. Graham Hoey
 1969 | Ms. Janet T. Cameron
 1970 | A. Harrold
-1971 | S. F. ilmour
+1971 | S. F. Gilmour
 1972 | T. Cowell
 1973 | J. S. Merrylees
 1974 | S. Graham Hoey
@@ -53,7 +53,7 @@ Year | Winner
 1982 | D. Woolley
 1983 | W. Colley
 1984 | G. MacKenzie
-1985 |S. Graham Hoey
+1985 | S. Graham Hoey
 1986 | W. Spalding
 1987 | C. Y. Reid
 1988 | D. P. Robinson
@@ -156,7 +156,7 @@ Year | Winner
 1986 | W. Colloey
 1987 | C. Breddy
 1988 | D. P. Robinson
-1989 | C. y. Reid
+1989 | C. Y. Reid
 1990 | C. Y. Reid
 1991 | P. McGowan
 1992 | W. Colley
@@ -195,7 +195,7 @@ Study of a subject or theme as depicted on stamps and other philatelic material.
 
 Year | Winner
 ---- | ------
-2021 | I.M Winner
+2019 | G. Henshilwood
 
 [back to top](#trophies-and-entry-criteria)
 ## Bill Colley Trophy
@@ -203,7 +203,7 @@ Study of philately prepared for and conveyed by airmail, whether official or uno
 
 Year | Winner
 ---- | ------
-2021 | I.M Winner
+2019 | A. Black
 
 [back to top](#trophies-and-entry-criteria)
 ## Julia MacLeod Trophy
