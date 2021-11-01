@@ -274,6 +274,7 @@ Year | Winner
 This may include local stamps, telegraph stamps, railway stamps, revenues/fiscals, forgeries, bogus and phantom issues. Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels etc.
 
 However, things such as trade, cigarette and telephone cards (unless the image of a stamp is incorporated in the design), matchbox or cheese labels, aerial propaganda leaflets, and other forms of ephemera like emergency money are not considered as Cinderella items for this purpose.
+
 Year | Winner
 ---- | ------
 2021 | I.M Winner
