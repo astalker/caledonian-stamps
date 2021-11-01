@@ -203,7 +203,9 @@ Study of philately prepared for and conveyed by airmail, whether official or uno
 
 Year | Winner
 ---- | ------
+2018 | A. Blakeley
 2019 | A. Black
+2020 | A. Black
 
 [back to top](#trophies-and-entry-criteria)
 ## Julia MacLeod Trophy
