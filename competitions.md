@@ -195,7 +195,51 @@ Study of a subject or theme as depicted on stamps and other philatelic material.
 
 Year | Winner
 ---- | ------
+1971 | T. Cowell
+1972 | Mrs M. I. Morris
+1973 | Mrs J. T. Cameron
+1974 | Mrs M. I. Morris
+1975 | G. R. Miller
+1976 | J. S. Merrylees
+1977 | A. Baird
+1978 | Mrs A. M. Kilpatrick
+1980 | A. Fraser
+1981 | G. R. Miller
+1982 | K. E. Norris
+1983 | I. D. Smith
+1984 | W. Colley
+1985 | Miss J. H. Trew
+1986 | Miss J. H. Trew
+1987 | P. MacGowan
+1989 | Miss J. H. Trew
+1990 | K. E. Norris
+1992 | Miss J. H. Trew
+1993 | Miss J. H. Trew
+1994 | K. E. Norris
+1995 | B. R. Allan
+1996 | Miss J. h. Trew
+1997 | I. D. Smith
+1998 | Mrs M. I. Morris
+1999 | J. G. Forsyth
+2000 | R. Walker
+2001 | I. D. Smith
+2002 | I. D. Smith
+2003 | I. D. Smith
+2004 | Mrs M. I. Morris
+2005 | I. D. Smith
+2006 | I. D. Smith
+2008 | Mrs M. Matheson
+2009 | J. Gavin
+2011 | Mrs M. i. Morris
+2012 | Rev. J. C. Caskie
+2013 | G. Henshilwood
+2014 | G. Henshilwood
+2015 | G. Henshilwood
+2016 | G. Henshilwood
+2017 | G. Henshilwood
+2018 | G. Henshilwood
 2019 | G. Henshilwood
+2020 | G. Henshilwood
 
 [back to top](#trophies-and-entry-criteria)
 ## Bill Colley Trophy
@@ -230,7 +274,6 @@ Year | Winner
 This may include local stamps, telegraph stamps, railway stamps, revenues/fiscals, forgeries, bogus and phantom issues. Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels etc.
 
 However, things such as trade, cigarette and telephone cards (unless the image of a stamp is incorporated in the design), matchbox or cheese labels, aerial propaganda leaflets, and other forms of ephemera like emergency money are not considered as Cinderella items for this purpose.
-
 Year | Winner
 ---- | ------
 2021 | I.M Winner
