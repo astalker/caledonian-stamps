@@ -10,7 +10,7 @@
 
 **Senior Vice-President**: Ian Mason
 
-**Junior Vice-President**: Vacant
+**Junior Vice-President**: Elizabeth Nairn
 
 **Secretary**: R.C. Welland
 
