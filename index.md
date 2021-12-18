@@ -12,7 +12,7 @@ In line with the latest advice from the Scottish Government, we suggest that you
 
 The Caledonian Philatelic Society (formed in 1906) exists to promote interest in and encourage the growth of philately and the fellowship that arises from it.
 
-Currently meetings are predominantly held using ZOOM with virtual displays by Members and guests. These are held weekly at 7pm on Thursdays  Face to Face meetings are planned as shown on the Meetings page and as stated above. 
+Currently meetings are predominantly held using ZOOM with virtual displays by Members and guests. These are held weekly at 7pm on Thursdays.  Face to Face meetings are planned as shown on the Meetings page and as stated above. 
 
 Members enjoy talks, members' evenings on different themes, visits from other philatelic societies, annual competitions and an annual social evening, for which a souvenir card is created.
 
