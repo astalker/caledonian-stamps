@@ -4,21 +4,23 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 **IMPORTANT NOTICE - COVID-19 UPDATE**
 
-Due to the continuing Covid-19 Pandemic the committee have decided that all society meetings planned for the current calendar year will now be cancelled. The committee shall continue monitoring events as they happen with a view to reopening society meetings at the first appropriate opportunity when it is safe for all members and visitors.
+Due to the ongoing Pandemic restrictions on social mixing and distancing most of the 2022 meetings (see meetings) will still be held using ZOOM. However we are aiming to recommence face to face meetings and four such meetings are planed - one per month from January 2022 to April 2022. These will be held in the Renfield Centre at 260 Bath Street in Glasgow. Meetings will be held in the Kirk Lounge on the 1st Floor. There is a lift available The room is booked from 6.00-9.30. After setting up we will hold a small Bourse from 6.30 and meetings will begin between 7.15 and 7.30 as usual. There is ample parking on Bath Street after 6pm or in the nearby NCP beside the Kings Theatre. Public Transport is also available.
 
-## 2020 - 2021
+In line with the latest advice from the Scottish Government, we suggest that you have a negative Lateral Flow Test before attending meetings and that you do not attend if you are feeling unwell for any reason. Masks must be worn at all face to face meetings unless you are exempt.
+
+## 2021 - 2022
 
 The Caledonian Philatelic Society (formed in 1906) exists to promote interest in and encourage the growth of philately and the fellowship that arises from it.
 
-The Society normally meets weekly, on Thursday evenings at 7.30pm, from early October to the middle of December and from early January to mid-March, on 5th floor Graham Hills Building, University of Strathclyde, George Street, Glasgow. Members enjoy talks, members' evenings on different themes, visits from other philatelic societies, annual competitions and an annual social evening, for which a souvenir card is created.
+Currently meetings are predominantly held using ZOOM with virtual displays by Members and guests. These are held weekly at 7pm on Thursdays  Face to Face meetings are planned as shown on the Meetings page and as stated above. 
+
+Members enjoy talks, members' evenings on different themes, visits from other philatelic societies, annual competitions and an annual social evening, for which a souvenir card is created.
 
 ## Latest Society News
 
 In order to maintain communication with members a monthly newsletter is now issued at the beginning of each month. As well as articles by members, information on future activities of the Society is given. For those not using e-mail hard copies are sent by post.
 
-As a consequence of the coronavirus pandemic the usual AGM for the society had to be carried out via e-mail correspondence and details were given in the Newsletters.
-
-Committee meetings have been held using ZOOM and this has now been extended to the membership as a whole. A programme of electronic displays has been formulated and can be accessed in Current Syllabus.
+Face to Face meetings are planned as stated above and as given on the Meetings page.
 
 ## Visitors
 
