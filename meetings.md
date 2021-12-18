@@ -19,3 +19,19 @@ Nov 25 | Early Canada | Graham Searle
 Dec 2 | Machins | David Graham
 DeC 9 | Visit from Leeds Philatelic Society
 Dec 16 | 6 Sheeets from Members on a "Festive" theme
+Jan 6 | 8 - 10 sheets | Committee Entertains
+Jan 13 | Presidential Display | Renfield Centre
+Jan 20 | Early Guernsey Postal History | Julian Bagwell
+Jan 27 | Lanarkshire Postal History | Terry Woods 
+Feb 3 | CYNICUS ( Martin Anderson) | Richard Smith
+Feb 10 | Valentines Through the Ages | Dr Stewart Gardiner | Renfield Centre
+Feb 17 | 6 - 8 sheets | Alphabet Lottery Part 1
+Feb 24 | The German Occupation of the Channel Islands | ALan Whittaker
+Mar 3 | Statue of Liberty | Jon Matthias
+Mar 10 |T B A | Renfield Centre
+Mar 17 | Postal History | Lyn Robinson
+March 24 | Turkey | Philip Longbottom FRPSL
+Mar 31 | 6 - 8 sheets | Alphabet Lottery Part 2
+April 7 | Gilbert and Ellis Islands | Robin Sherman | Renfield Centre
+April 14 | Rowland Hill, Genius and Benefactor | Alan Godfrey FRPSL
+Apr 2 | A G M
