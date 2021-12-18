@@ -3,8 +3,11 @@
 [Previous Meetings](./previous-meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
 ## 2021 - 2022
-The meetings listed below will continue to be held using ZOOM.  Log in Details will be emailed
-weekly. Please contact the President if you wish to be added to the invitation list.
+Due to the ongoing Pandemic restrictions on social mixing and distancing most of the 2022 meetings (now added below) will still be held using ZOOM.  Log in Details will be emailed weekly. Please contact the President if you wish to be added to the invitation list.
+
+In order to get back to face to face meetings four meetings are planned to be held in the Renfield Centre at 260 Bath Street in Glasgow. Access to our normal meeting room in Strathclyde university is not possible in the fore=seeabe future. Meetingw will be held in the Kirk Lounge on the 1st Floor. There is a lift available  The room is booked from  6.00-9.30.  After setting up we will hold a small Bourse from 6.30 and meetings will begin between 7.15 and 7.30 as usual.  There is ample parking on Bath Street after 6pm or in the nearby NCP beside the Kings Theatre.  Public Transport is also available.  
+
+In line with the latest advice from the Scottish Government, we suggest that you have a negative Lateral Flow Test before attending meetings and that you do not attend if you are feeling unwell for any reason.  Masks must be worn at all face to face meetings unless you are exempt.
 
 Date  | Subject | Member
 ----- | ------- | ------
