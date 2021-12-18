@@ -29,7 +29,7 @@ Feb 17 | 6 - 8 sheets | Alphabet Lottery Part 1
 Feb 24 | The German Occupation of the Channel Islands | ALan Whittaker
 Mar 3 | Statue of Liberty | Jon Matthias
 Mar 10 |T B A | | Renfield Centre
-Mar 17 | Postal History | Lyn Robinson
+Mar 17 | Postal History | Lyn Robinson | Renfield Centre
 March 24 | Turkey | Philip Longbottom FRPSL
 Mar 31 | 6 - 8 sheets | Alphabet Lottery Part 2
 April 7 | Gilbert and Ellis Islands | Robin Sherman | Renfield Centre
