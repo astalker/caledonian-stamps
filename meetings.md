@@ -3,9 +3,9 @@
 [Previous Meetings](./previous-meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
 ## 2021 - 2022
-Due to the ongoing Pandemic restrictions on social mixing and distancing most of the 2022 meetings (now added below) will still be held using ZOOM.  Log in Details will be emailed weekly. Please contact the President if you wish to be added to the invitation list.
+Due to the ongoing Pandemic restrictions on social mixing and distancing most of the 2022 meetings (now added below) will still be held using ZOOM. Note that, due to the Omicron COVID-19 variant restrictions, the meeting scheduled for the 13th of January 2022 will not be held in the Renfield Centre but will take place using ZOOM. Log in Details will be emailed weekly. Please contact the President if you wish to be added to the invitation list.
 
-In order to get back to face to face meetings four meetings are planned to be held in the Renfield Centre at 260 Bath Street in Glasgow. Access to our normal meeting room in Strathclyde University is not possible in the foreseeable future. Meetings will be held in the Kirk Lounge on the 1st Floor. There is a lift available  The room is booked from  6.00-9.30.  After setting up we will hold a small Bourse from 6.30 and meetings will begin between 7.15 and 7.30 as usual.  There is ample parking on Bath Street after 6pm or in the nearby NCP beside the Kings Theatre.  Public Transport is also available.  
+In order to get back to face to face meetings three meetings are planned to be held in the Renfield Centre at 260 Bath Street in Glasgow. Access to our normal meeting room in Strathclyde University is not possible in the foreseeable future. Meetings will be held in the Kirk Lounge on the 1st Floor. There is a lift available  The room is booked from  6.00-9.30.  After setting up we will hold a small Bourse from 6.30 and meetings will begin between 7.15 and 7.30 as usual.  There is ample parking on Bath Street after 6pm or in the nearby NCP beside the Kings Theatre.  Public Transport is also available.  
 
 In line with the latest advice from the Scottish Government, we suggest that you have a negative Lateral Flow Test before attending meetings and that you do not attend if you are feeling unwell for any reason.  Masks must be worn at all face to face meetings unless you are exempt.
 
@@ -23,7 +23,7 @@ Dec 2 | Machins | David Graham
 DeC 9 | Visit from Leeds Philatelic Society
 Dec 16 | 6 Sheeets from Members on a "Festive" theme
 Jan 6 | 8 - 10 sheets | Committee Entertains
-Jan 13 | Presidential Display | | Renfield Centre
+Jan 13 | Presidential Display
 Jan 20 | Early Guernsey Postal History | Julian Bagwell
 Jan 27 | Lanarkshire Postal History | Terry Woods 
 Feb 3 | CYNICUS ( Martin Anderson) | Richard Smith
