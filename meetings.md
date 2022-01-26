@@ -25,7 +25,7 @@ Dec 16 | 6 Sheeets from Members on a "Festive" theme
 Jan 6 | 8 - 10 sheets | Committee Entertains
 Jan 13 | Presidential Display
 Jan 20 | Early Guernsey Postal History | Julian Bagwell
-Jan 27 | Lanarkshire Postal History | Terry Woods 
+Jan 27 | First Scottish Registration Labels | Terry Woods 
 Feb 3 | CYNICUS ( Martin Anderson) | Richard Smith
 Feb 10 | Valentines Through the Ages | Dr Stewart Gardiner | Renfield Centre
 Feb 17 | 6 - 8 sheets | Alphabet Lottery Part 1
