@@ -34,6 +34,7 @@ Mar 3 | Statue of Liberty | Jon Matthias
 Mar 10 |T B A | | Renfield Centre
 Mar 17 | Postal History | Lyn Robinson
 March 24 | Turkey | Philip Longbottom FRPSL
+March 25 | Social Evening | Hilton Grosvenor Hotel
 Mar 31 | 6 - 8 sheets | Alphabet Lottery Part 2
 April 7 | Gilbert and Ellis Islands | Robin Sherman | Renfield Centre
 April 14 | Rowland Hill, Genius and Benefactor | Alan Godfrey FRPSL
