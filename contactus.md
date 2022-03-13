@@ -2,16 +2,16 @@
 
 The President and fellow office bearers can be contacted at the following email addresses:
 
-President: president@caledonianphilatelic.org.uk
+President: <a href="mailto:president@caledonianphilatelic.org.uk">president@caledonianphilatelic.org.uk</a>
 
-Senior vice-president: senior-vice-president@caledonianphilatelic.org.uk
+Senior vice-president: <a href="mailto:senior-vice-president@caledonianphilatelic.org.uk">senior-vice-president@caledonianphilatelic.org.uk</a>
 
-Junior Vice-president:	junior-vice-president@caledonianphilatelic.org.uk
+Junior Vice-president:	<a href="mailto:junior-vice-president@caledonianphilatelic.org.uk">junior-vice-president@caledonianphilatelic.org.uk</a>
 
-Treasurer: treasurer@caledonianphilatelic.org.uk
+Treasurer: <a href="mailto:treasurer@caledonianphilatelic.org.uk">treasurer@caledonianphilatelic.org.uk</a>
 
-Web Master: webmaster@caledonianphilatelic.org.uk
+Web Master: <a href="mailto:webmaster@caledonianphilatelic.org.uk">webmaster@caledonianphilatelic.org.uk</a>
 
-ZOOM Coordinator: zoom@caledonianphilatelic.org.uk
+ZOOM Coordinator: <a href="mailto:zoom@caledonianphilatelic.org.uk">zoom@caledonianphilatelic.org.uk</a>
 
-Secretary: secretary@caledonianphilatelic.org.uk
+Secretary: <a href="mailto:secretary@caledonianphilatelic.org.uk">secretary@caledonianphilatelic.org.uk</a>
