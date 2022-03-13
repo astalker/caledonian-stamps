@@ -1,7 +1,17 @@
-# Contact
+# Contacts
 
-The secretary can be contacted at this email address
+The President and fellow office bearers can be contacted at the following email addresses:
 
- Secretary: Ray Welland
+President: president@caledonianphilatelic.org.uk
 
-secretary@caledonianphilatelic.org.uk
+Senior vice-president: senior-vice-president@caledonianphilatelic.org.uk
+
+Junior Vice-president:	junior-vice-president@caledonianphilatelic.org.uk
+
+Treasurer: treasurer@caledonianphilatelic.org.uk
+
+Web Master: webmaster@caledonianphilatelic.org.uk
+
+ZOOM Coordinator: zoom@caledonianphilatelic.org.uk
+
+Secretary: secretary@caledonianphilatelic.org.uk
