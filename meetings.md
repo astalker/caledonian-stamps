@@ -40,4 +40,4 @@ March 25 | Social Evening | Hilton Grosvenor Hotel
 Mar 31 | 6 - 8 sheets | Alphabet Lottery Part 2
 April 7 | Gilbert and Ellis Islands | Robin Sherman | Renfield Centre
 April 14 | Rowland Hill, Genius and Benefactor | Alan Godfrey FRPSL
-Apr 2 | A G M
+Apr 28| A G M
