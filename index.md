@@ -2,7 +2,9 @@
 
 Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
 
-**IMPORTANT NOTICE - LATEST NEWS - The next meeting on 7th April 2022 will be a display by Robin Sherman who will be showing Gilbert and Ellis Islands. The meeting will be held in the Renfield Centre.**
+**IMPORTANT NOTICE - LATEST NEWS - The next meeting on 14th April 2022 will be a ZOOM presentation by Alan Godfrey FRPSL on Rowland Hill, Genius and Benefactor. The meeting will be at 7pm and details on connection will be sent out by email in advance.**
+
+**The 91st annual ASPS Congress will be held in the Dewar Centre in Perth on 22nd and 23rd of April. The Host Society this year is Perth Philatelic Society. Full details can be found on the ASPS Web Site (https://www.scottishphilately.co.uk/congress).**
 
 Due to continuing restrictions on access to our normal meeting venue in Strathclyde University most of our meetings will still be held using ZOOM. We have arranged for further  face to face meetings to be held in March and April 2022. These will be held in the Renfield Centre at 260 Bath Street in Glasgow. Meetings will be held in the Kirk Lounge on the 1st Floor. There is a lift available The room is booked from 6.00-9.30. After setting up we will hold a small Bourse from 6.30 and meetings will begin between 7.15 and 7.30 as usual. There is ample parking on Bath Street after 6pm or in the nearby NCP beside the Kings Theatre. Public Transport is also available.
 
