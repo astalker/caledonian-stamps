@@ -12,9 +12,9 @@
 
 **Junior Vice-President**: Elizabeth Nairn
 
-**Secretary (Acting)**: Stewart Gardiner
+**Secretary (Acting)**: Dr Stewart Gardiner FRPSL
 
-**Treasurer**: A.G. Blakeley
+**Treasurer**: Alan G. Blakeley
 
 **Exchange Packet Secretary**: Mrs Lyn Robinson
 
@@ -22,9 +22,9 @@
 
 **Public Relations Officer**: Sandy Kerr
 
-**Forgery Warden**: Dr. S. Gardiner FRPSL
+**Forgery Warden**: Dr. Stewart Gardiner FRPSL
 
-**Archivist**: Dr. S. Gardiner FRPSL
+**Archivist**: Dr. Stewart Gardiner FRPSL
 
 **Webmaster**: Dr David Stalker
 
