@@ -12,7 +12,7 @@
 
 **Junior Vice-President**: Elizabeth Nairn
 
-**Secretary**: R.C. Welland
+**Secretary (Acting)**: Stewart Gardiner
 
 **Treasurer**: A.G. Blakeley
 
