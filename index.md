@@ -2,7 +2,7 @@
 
 Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
 
-**IMPORTANT NOTICE - LATEST NEWS - The next meeting on 14th April 2022 will be a ZOOM presentation by Alan Godfrey FRPSL on Rowland Hill, Genius and Benefactor. The meeting will be at 7pm and details on connection will be sent out by email in advance.**
+**IMPORTANT NOTICE - LATEST NEWS - The next meeting on 28th April 2022 will be the Annual General Meeting (AGM). This be held using ZOOM so that as many members as possible can participate. As we move from the rstrictions imposed by COVID-19 there are a number of important points that need discussion, in particular regarding meetings (ZOOM and face-to-face) and venues. The meeting will be at 7pm and details on connection will be sent out by email in advance.**
 
 **The 91st annual ASPS Congress will be held in the Dewar Centre in Perth on 22nd and 23rd of April. The Host Society this year is Perth Philatelic Society. Full details can be found on the ASPS Web Site (https://www.scottishphilately.co.uk/congress).**
 
