@@ -40,13 +40,13 @@ George Henshilwood - Victorian Hand-Illustrated Covers - Large Silver Gilt
 
 Andrew Black - The Post War Airmail Covers by Quantas - Small Silver Gilt
 
-**Cinderella | Jean Osborne Trophy |**
+**Cinderella (Jean Osborne Trophy**
 
 Alexander Kerr | Romanian Scout Cinderellas | Bronze Silver and winner of trophy
 
-**Picture Postcards | Scottish Postcard Trophy |**
+**Picture Postcards (Scottish Postcard Trophy)**
 
-Alexander Kerr | Hermitage Park Helensburgh | Bronze Silver
+Alexander Kerr - Hermitage Park Helensburgh - Bronze Silver
 
 **Literature (Robson Lowe Salver)**
 
