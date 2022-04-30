@@ -4,45 +4,44 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 **I LATEST NEWS - The AGM was held on 28th April 2022 using ZOOM. The changes to the Office bearers and Committee have been added too the Committee page.  Active investigations are under way to find a suitable venue for face to face meetings in the event that Strathclyde University continues to be unavailable.
 
-**The 91st annual ASPS Congress was held in the Dewar Centre in Perth on 22nd and 23rd of April. A number of members of the Caledonian Philatelic Society entered the ASPS National Exhibition:
+**The 91st annual ASPS Congress was held in the Dewar Centre in Perth on 22nd and 23rd of April. A number of members of the Caledonian Philatelic Society entered the ASPS National Exhibition:**
 
-Thematic | Scottish Thematic Rosebowl |
+**Thematic | Scottish Thematic Rosebowl |**
  
 George Henshilwood | A Number of Mathematicians | Large Silver Gilt|
 
-National Class| Carson Trophy |
+**National Class| Carson Trophy |**
 
 George Henshiulwood | The 1897 Jubilee Issue | Gold|
 
-General Class Post - 1900 | The Bridge of Alla Trophy |
+**General Class Post - 1900 | The Bridge of Alla Trophy |**
 
 David Stalker | New Zealand Counter Coils of King George VI |Gold and Winner of Trophy |
 George Henshilwood | The US Transportation Coil Issue 1981 - 1995 | Large Silver Gilt |
-
 Aaln Blakeley | Temperance Orga=niastions | Silver |
 
 Dr Stewart Gardiner | Missionary Mail from China 1901 - 1903, The London Missionary Society | Large Silver Gilt |
 Alexander Kerr | Scouting ois on the Cards | Large Silver Gilt |
 
-Postal History | Glasgow 800 Cup |
+**Postal History | Glasgow 800 Cup |**
 
 Alan Blakeley | International Mail from Nova Scotia 1800 - 1867 | Gold and winner of trophy |
 Dr Stewart Gardiner | Rise to Dominance of the Allan Line | Large Silver Gilt |
 George Henshilwood | Victorian Hand-Illustrated Covers | Large Silver Gilt |
 
-Aerophilatelic Class | Aeroohilatelic Shield |
+**Aerophilatelic Class | Aeroohilatelic Shield |**
 
 Andrew Black | The Post War Airmail Covers by Quantas | Small Silver Gilt |
 
-Cinderella | Jean Osborne Trophy |
+**Cinderella | Jean Osborne Trophy |**
 
 Alexander Kerr | Romanian Scout Cinderellas | Bronze Silver and winner of trophy |
 
-Picture Postcards | Scottish Postcard Trophy |
+**Picture Postcards | Scottish Postcard Trophy |**
 
 Alexander Kerr | Hermitage Park Helensburgh | Bronze Silver |
 
-Literature | Robson Lowe Salver |
+**Literature | Robson Lowe Salver |**
 
 Brian Dow and Jog=hn Brown | Peebleshire and Selkirkshire Post Officews and Poastmarks 1771 - 2019 |
 
