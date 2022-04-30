@@ -42,7 +42,7 @@ Andrew Black - The Post War Airmail Covers by Quantas - Small Silver Gilt
 
 **Cinderella (Jean Osborne Trophy**
 
-Alexander Kerr | Romanian Scout Cinderellas | Bronze Silver and winner of trophy
+Alexander Kerr - Romanian Scout Cinderellas -Bronze Silver and winner of trophy
 
 **Picture Postcards (Scottish Postcard Trophy)**
 
