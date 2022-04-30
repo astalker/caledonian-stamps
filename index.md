@@ -6,14 +6,42 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 **The 91st annual ASPS Congress was held in the Dewar Centre in Perth on 22nd and 23rd of April. A number of members of the Caledonian Philatelic Society entered the ASPS National Exhibition:
 
+Thematic | Scottish Thematic Rosebowl 
+----- | ------- | ------
+George Henshilwood | A Number of Mathematicians | Large Silver Gilt
 
-. Full details can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).**
+National Class| Carson Trophy |
+George Henshiulwood | The 1897 Jubilee Issue | Gold
 
-Due to continuing restrictions on access to our normal meeting venue in Strathclyde University most of our meetings will still be held using ZOOM. We have arranged for further  face to face meetings to be held in March and April 2022. These will be held in the Renfield Centre at 260 Bath Street in Glasgow. Meetings will be held in the Kirk Lounge on the 1st Floor. There is a lift available The room is booked from 6.00-9.30. After setting up we will hold a small Bourse from 6.30 and meetings will begin between 7.15 and 7.30 as usual. There is ample parking on Bath Street after 6pm or in the nearby NCP beside the Kings Theatre. Public Transport is also available.
+General Class Post - 1900 | The Bridge of Alla Trophy
+David Stalker | New Zealand Counter Coils of King George VI |Gold and Winner of Trophy
+George Henshilwood | The US Transportation Coil Issue 1981 - 1995 | Large Silver Gilt
 
-In line with the latest advice from the Scottish Government, we suggest that you have a negative Lateral Flow Test before attending meetings and that you do not attend if you are feeling unwell for any reason. Masks must be worn at all face to face meetings unless you are exempt. In advance please advise the president of your intention to attend so that appropriate seating can be laid out.
+Social Philately | Iain T. Boyle Vase
+Aaln Blakeley | Temperance Organisations | Silver
+Dr Stewart Gardiner | Missionary Mail from China 1901 - 1903, The London Missionary Society | Large Silver Gilt
+Alexander Kerr | Scouting ois on the Cards | Large Silver Gilt
 
-## 2021 - 2022
+Postal History | Glasgow 800 Cup
+Alan Blakeley | International Mail from Nova Scotia 1800 - 1867 | Gold and winner of trophy
+Dr Stewart Gardiner | Rise to Dominance of the Allan Line | Large Silver Gilt
+George Henshilwood | Victorian Hand-Illustrated Covers | Large Silver Gilt
+
+Aerophilatelic Class | Aeroohilatelic Shield
+Andrew Black | The Post War Airmail Covers by Quantas | Small Silver Gilt
+
+Cinderella | Jean Osborne Trophy
+Alexander Kerr | Romanian Scout Cinderellas | Bronze Silver and winner of trophy
+
+Picture Postcards | Scottish Postcard Trophy
+Alexander Kerr | Hermitage Park Helensburgh | Bronze Silver
+
+Literature | Robson Lowe Salver
+Brian Dow and Jog=hn Brown | Peebleshire and Selkirkshire Post Officews and Poastmarks 1771 - 2019 
+
+Full details and othe deatil of events and news about the hobby of stamp collecting in Scotalnad can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).**
+
+## 2022 - 2023
 
 The Caledonian Philatelic Society (formed in 1906) exists to promote interest in and encourage the growth of philately and the fellowship that arises from it.
 
