@@ -46,11 +46,11 @@ Alexander Kerr - Romanian Scout Cinderellas -Bronze Silver and winner of trophy
 
 **Picture Postcards (Scottish Postcard Trophy)**
 
-Alexander Kerr - Hermitage Park Helensburgh - Bronze Silver
+Alexander Kerr - Hermitage Park, Helensburgh - Bronze Silver
 
 **Literature (Robson Lowe Salver)**
 
-Brian Dow and John Brown - Peebleshire and Selkirkshire Post Officews and Poastmarks 1771 - 2019
+Brian Dow and John Brown - Peebleshire and Selkirkshire Post Offices and Poastmarks 1771 - 2019
 
 Full details and othe deatil of events and news about the hobby of stamp collecting in Scotalnad can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).**
 
