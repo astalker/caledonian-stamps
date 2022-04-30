@@ -20,6 +20,8 @@ David Stalker - New Zealand Counter Coils of King George VI - Gold and Winner of
 
 George Henshilwood - The US Transportation Coil Issue 1981 - 1995 - Large Silver Gilt
 
+** Social Philately (Iain T. Boyle Vase)**
+
 Aaln Blakeley - Temperance Orga=niastions - Silver
 
 Dr Stewart Gardiner - Missionary Mail from China 1901 - 1903, The London Missionary Society - Large Silver Gilt
