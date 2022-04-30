@@ -17,16 +17,21 @@ George Henshiulwood | The 1897 Jubilee Issue | Gold|
 **General Class Post - 1900 | The Bridge of Alla Trophy |**
 
 David Stalker | New Zealand Counter Coils of King George VI |Gold and Winner of Trophy |
+
 George Henshilwood | The US Transportation Coil Issue 1981 - 1995 | Large Silver Gilt |
+
 Aaln Blakeley | Temperance Orga=niastions | Silver |
 
 Dr Stewart Gardiner | Missionary Mail from China 1901 - 1903, The London Missionary Society | Large Silver Gilt |
+
 Alexander Kerr | Scouting ois on the Cards | Large Silver Gilt |
 
 **Postal History | Glasgow 800 Cup |**
 
 Alan Blakeley | International Mail from Nova Scotia 1800 - 1867 | Gold and winner of trophy |
+
 Dr Stewart Gardiner | Rise to Dominance of the Allan Line | Large Silver Gilt |
+
 George Henshilwood | Victorian Hand-Illustrated Covers | Large Silver Gilt |
 
 **Aerophilatelic Class | Aeroohilatelic Shield |**
