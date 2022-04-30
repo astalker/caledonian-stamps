@@ -20,7 +20,7 @@ David Stalker - New Zealand Counter Coils of King George VI - Gold and Winner of
 
 George Henshilwood - The US Transportation Coil Issue 1981 - 1995 - Large Silver Gilt
 
-** Social Philately (Iain T. Boyle Vase)**
+**Social Philately (Iain T. Boyle Vase)**
 
 Aaln Blakeley - Temperance Orga=niastions - Silver
 
