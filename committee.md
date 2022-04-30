@@ -1,18 +1,18 @@
-# Committee
+# Committee and Office Bearers
 
 **Hon. President**: Mr W. Colley, FRPSL
 
 **Hon. Vice Presidents**
 
- Mrs. M. Morris, DTP, FRPSL, Kenneth Norris, FRPSL & William Neithercut.
+ Mrs. M. Morris, DTP, FRPSL, Kenneth Norris, FRPSL
 
-**President**: Maureen Matheson
+**President**: Ian Mason
 
-**Senior Vice-President**: Ian Mason
+**Senior Vice-President**: Elizabeth Nairn
 
-**Junior Vice-President**: Elizabeth Nairn
+**Junior Vice-President**: Vacant
 
-**Secretary (Acting)**: Dr Stewart Gardiner FRPSL
+**Secretary **: Dr Stewart Gardiner FRPSL
 
 **Treasurer**: Alan G. Blakeley
 
@@ -30,8 +30,10 @@
 
 **Auctioneer**: Ken Norris, FRPSL
 
+**Roll Keeper**: Elizabeth Nairn
+
 **Committee**:
 
-Alistair Burrow, John Gavin, Ray Baldock and Andrew Black
+Maureen Matheson John Gavin
 
 **Examiners**: Elizabeth Nairn & Gordon Shepherd
