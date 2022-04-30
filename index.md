@@ -8,7 +8,7 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 **Thematic | Scottish Thematic Rosebowl |**
  
-George Henshilwood | A Number of Mathematicians | Large Silver Gilt|
+George Henshilwood - A Number of Mathematicians - Large Silver Gilt
 
 **National Class| Carson Trophy |**
 
@@ -48,7 +48,7 @@ Alexander Kerr | Hermitage Park Helensburgh | Bronze Silver |
 
 **Literature | Robson Lowe Salver |**
 
-Brian Dow and Jog=hn Brown | Peebleshire and Selkirkshire Post Officews and Poastmarks 1771 - 2019 |
+Brian Dow and John Brown | Peebleshire and Selkirkshire Post Officews and Poastmarks 1771 - 2019 |
 
 Full details and othe deatil of events and news about the hobby of stamp collecting in Scotalnad can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).**
 
