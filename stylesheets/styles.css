@@ -17,22 +17,13 @@ body {
   }
 
   a {
-    color:#39c;
+    color: #056c9f;
+    text-decoration:none;
   }
 
   a:hover {
     color:#806117;
-  }
-
-  a small {
-    font-size:11px;
-    color:#777;
-    margin-top:-0.3em;
-    display:block;
-  }
-
-  a:hover small {
-    color:#777;
+    text-decoration:underline;
   }
 
   .wrapper {
@@ -115,14 +106,9 @@ body {
   }
 
   nav ul a {
-    color: #056c9f;
     display:block;
     padding-left:15px;
     padding-top:12px;
-  }
-
-  nav ul a:hover {
-    background-color:#f0f0f0;
   }
 
   section {
