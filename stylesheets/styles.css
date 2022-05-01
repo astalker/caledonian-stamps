@@ -18,11 +18,10 @@ body {
 
   a {
     color:#39c;
-    text-decoration:none;
   }
 
   a:hover {
-    color:#069;
+    color:#806117;
   }
 
   a small {
@@ -104,7 +103,7 @@ body {
   }
 
   nav li {
-    height:40px;
+    padding:5px 0;
   }
 
   nav li:first-child a {
@@ -116,14 +115,13 @@ body {
   }
 
   nav ul a {
-    line-height:1;
+    color: #056c9f;
     display:block;
     padding-left:15px;
     padding-top:12px;
-    height:34px;
   }
 
-  nav ul a:active {
+  nav ul a:hover {
     background-color:#f0f0f0;
   }
 
@@ -154,32 +152,6 @@ body {
     margin:0 15px;
     width:80px;
   }
-
-  .submenu {
-    padding:0;
-    margin-bottom:10px;
-  }
-
-  .submenu:after {
-    content: "";
-    display: table;
-    clear: both;
-  }
-
-  .submenu li {
-    float:left;
-    margin-right: 5px;
-    list-style: none;
-  }
-
-  .submenu li:before {
-     content: " / ";
-  }
-
-  .submenu li:first-child:before {
-     content: " ";
-  }
-
 
   /* @media print, screen and (max-width: 960px) {
 
