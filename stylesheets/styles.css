@@ -79,6 +79,7 @@ body {
     width:200px;
     float:left;
     clear:left;
+    margin-top:15px;
   }
 
   nav ul {
@@ -143,8 +144,9 @@ body {
         
 
     nav {
-      float:none
-      }
+      float:none;
+      margin-top:0;
+    }
       
     nav ul {
       background:none;
