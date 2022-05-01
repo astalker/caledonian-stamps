@@ -75,10 +75,6 @@ body {
     max-width:100%;
   }
 
-  header {
-    height:100px;
-  }
-
   nav {
     width:200px;
     float:left;
@@ -151,70 +147,18 @@ body {
       }
       
     nav ul {
-      background-color:none;
+      background:none;
       border:0;
     }
     
-      
     nav li {
       float:left;
       a {
         padding-top: 0
       }
     }
-      
-/*     div.wrapper {
-      width:auto;
-      margin:0;
-    }
 
-    nav, section, footer {
-      float:none;
-      position:static;
-      width:auto;
-    }
-
-    nav {
-      padding-right:320px;
-    }
-
-    section {
-      border:1px solid #e5e5e5;
-      border-width:1px 0;
-      padding:20px 0;
-      margin:0 0 20px;
-    }
-
-    nav a small {
-      display:inline;
-    } */
   }
-
-/*   @media print, screen and (max-width: 720px) {
-    body {
-      word-wrap:break-word;
-    }
-      
-
-
-    pre, code {
-      word-wrap:normal;
-    }
-  }
-
-  @media print, screen and (max-width: 480px) {
-    body {
-      padding:15px;
-    }
-
-    nav ul {
-      width:99%;
-    }
-
-    nav li, nav ul li + li + li {
-      width:33%;
-    }
-  } */
 
   @media print {
     body {
