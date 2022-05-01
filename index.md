@@ -2,7 +2,7 @@
 
 Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
 
-**LATEST NEWS** - The AGM was held on 28th April 2022 using ZOOM. The changes to the Office bearers and Committee have been added too the Committee page.  Active investigations are under way to find a suitable venue for face to face meetings in the event that Strathclyde University continues to be unavailable.
+**LATEST NEWS** - The AGM was held on 28th April 2022 using ZOOM. The changes to the Office bearers and Committee have been added to the Committee page.  Active investigations are under way to find a suitable venue for face to face meetings in the event that Strathclyde University continues to be unavailable.
 
 **The 91st annual ASPS Congress was held in the Dewar Centre in Perth on 22nd and 23rd of April. A number of members of the Caledonian Philatelic Society entered the ASPS National Exhibition:**
 
