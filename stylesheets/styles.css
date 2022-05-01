@@ -139,7 +139,7 @@ body {
     width:80px;
   }
 
-  /* @media print, screen and (max-width: 960px) {
+  @media print, screen and (max-width: 960px) {
 
     div.wrapper {
       width:auto;
@@ -178,9 +178,24 @@ body {
     body {
       word-wrap:break-word;
     }
+      
+    .wrapper {width:100%;}
+    section {width:100%}
+        
 
     nav {
-      padding:0;
+      float:none
+      ul {
+        background-color:none;
+        birder:0;
+      }
+    }
+      
+    nav li {
+      float:left;
+      a {
+        padding-top: 0
+      }
     }
 
     nav ul, nav p.view {
@@ -204,7 +219,7 @@ body {
     nav li, nav ul li + li + li {
       width:33%;
     }
-  } */
+  }
 
   @media print {
     body {
