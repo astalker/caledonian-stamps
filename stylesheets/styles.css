@@ -82,6 +82,7 @@ body {
   nav {
     width:200px;
     float:left;
+    clear:left;
   }
 
   nav ul {
