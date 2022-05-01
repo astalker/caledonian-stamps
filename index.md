@@ -2,7 +2,7 @@
 
 Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
 
-**I LATEST NEWS - The AGM was held on 28th April 2022 using ZOOM. The changes to the Office bearers and Committee have been added too the Committee page.  Active investigations are under way to find a suitable venue for face to face meetings in the event that Strathclyde University continues to be unavailable.
+**LATEST NEWS** - The AGM was held on 28th April 2022 using ZOOM. The changes to the Office bearers and Committee have been added too the Committee page.  Active investigations are under way to find a suitable venue for face to face meetings in the event that Strathclyde University continues to be unavailable.
 
 **The 91st annual ASPS Congress was held in the Dewar Centre in Perth on 22nd and 23rd of April. A number of members of the Caledonian Philatelic Society entered the ASPS National Exhibition:**
 
@@ -52,7 +52,7 @@ Alexander Kerr - Hermitage Park, Helensburgh - Bronze Silver
 
 Brian Dow and John Brown - Peebleshire and Selkirkshire Post Offices and Poastmarks 1771 - 2019
 
-Full details and othe deatil of events and news about the hobby of stamp collecting in Scotalnad can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).**
+Full details and other detail of events and news about the hobby of stamp collecting in Scotalnad can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
 
 ## 2022 - 2023
 
