@@ -142,7 +142,28 @@ body {
 
   @media print, screen and (max-width: 960px) {
 
-    div.wrapper {
+    .wrapper {width:100%;}
+    section {width:100%}
+        
+
+    nav {
+      float:none
+      }
+      
+    nav ul {
+      background-color:none;
+      border:0;
+    }
+    
+      
+    nav li {
+      float:left;
+      a {
+        padding-top: 0
+      }
+    }
+      
+/*     div.wrapper {
       width:auto;
       margin:0;
     }
@@ -166,42 +187,15 @@ body {
 
     nav a small {
       display:inline;
-    }
-
-    nav ul {
-      position:absolute;
-      right:50px;
-      top:52px;
-    }
+    } */
   }
 
-  @media print, screen and (max-width: 720px) {
+/*   @media print, screen and (max-width: 720px) {
     body {
       word-wrap:break-word;
     }
       
-    .wrapper {width:100%;}
-    section {width:100%}
-        
 
-    nav {
-      float:none
-      ul {
-        background-color:none;
-        birder:0;
-      }
-    }
-      
-    nav li {
-      float:left;
-      a {
-        padding-top: 0
-      }
-    }
-
-    nav ul, nav p.view {
-      position:static;
-    }
 
     pre, code {
       word-wrap:normal;
@@ -220,7 +214,7 @@ body {
     nav li, nav ul li + li + li {
       width:33%;
     }
-  }
+  } */
 
   @media print {
     body {
