@@ -12,7 +12,7 @@ George Henshilwood - A Number of Mathematicians - Large Silver Gilt
 
 **National Class (Carson Trophy)**
 
-George Henshiulwood - The 1897 Jubilee Issue - Gold
+George Henshilwood - The 1897 Jubilee Issue - Gold
 
 **General Class Post - 1900 (The Bridge of Alla Trophy)**
 
@@ -22,13 +22,13 @@ George Henshilwood - The US Transportation Coil Issue 1981 - 1995 - Large Silver
 
 **Social Philately (Iain T. Boyle Vase)**
 
-Aaln Blakeley - Temperance Orga=niastions - Silver
+Aaln Blakeley - Temperance Organisations - Silver
 
 Dr Stewart Gardiner - Missionary Mail from China 1901 - 1903, The London Missionary Society - Large Silver Gilt
 
-Alexander Kerr - Scouting ois on the Cards - Large Silver Gilt
+Alexander Kerr - Scouting is on the Cards - Large Silver Gilt
 
-**Postal History (Glasgow 800 Cup**
+**Postal History (Glasgow 800 Cup)**
 
 Alan Blakeley - International Mail from Nova Scotia 1800 - 1867 - Gold and winner of trophy
 
@@ -36,13 +36,13 @@ Dr Stewart Gardiner - Rise to Dominance of the Allan Line - Large Silver Gilt
 
 George Henshilwood - Victorian Hand-Illustrated Covers - Large Silver Gilt
 
-**Aerophilatelic Class (Aeroohilatelic Shield)**
+**Aerophilatelic Class (Aerophilatelic Shield)**
 
 Andrew Black - The Post War Airmail Covers by Quantas - Small Silver Gilt
 
-**Cinderella (Jean Osborne Trophy**
+**Cinderella (Jean Osborne Trophy)**
 
-Alexander Kerr - Romanian Scout Cinderellas -Bronze Silver and winner of trophy
+Alexander Kerr - Romanian Scout Cinderellas - Bronze Silver and winner of trophy
 
 **Picture Postcards (Scottish Postcard Trophy)**
 
