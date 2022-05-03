@@ -49,11 +49,19 @@ As is traditional many member exhibited samples of the wide collecting interests
 
 ### 1972
 
-![1972 Congress cover](images/1972-cover.jpg)
+![1972 Congress cover Black cachet](images/1972-cover.jpg)
+
+![1972 Congress cover Red cachet](images/1972-Cover-Red-Cachet.jpg)
+
+![Railway Loco](images/Railway-Loco-419.jpg)
+
+![Railway ticket](images/Ticket-to-see-Loco-419-at-Stirling-Station.jpg)
 
 ### 1981
 
 ![1981 Cover](images/1981-cover.jpg)
+
+![1981 Cover with Mail Drop Cachet](images/Cover-with-Mail-Drop-Cachet.jpg)
 
 ![1981 Insert](images/1981-insert.jpg)
 
