@@ -1,8 +1,9 @@
 # History
 
+* [Congress Covers](./congress-covers.md)
+
 1. [Centennial](#centennial)
 1. [Hosting ASPS Annual Congress](#hosting-asps-annual-congress)
-1. [Congress Covers](#congress-covers)
 1. [2500th Meeting](#2500th-meeting)
 1. [110th Anniversary](#110th-anniversary)
 1. [Philatelic Congress of Great Britain](#philatelic-congress-of-great-britain)
@@ -45,49 +46,9 @@ As is traditional many member exhibited samples of the wide collecting interests
 
 [back to top](#history)
 
-## Congress Covers
-
-### 1972
-
-![1972 Congress cover Black cachet](images/1972-cover.jpg)
-
-![1972 Congress cover Red cachet](images/1972-Cover-Red-Cachet.jpg)
-
-![Railway Loco](images/Railway-Loco-419.jpg)
-
-![Railway ticket](images/Ticket-to-see-Loco-419-at-Stirling-Station.jpg)
-
-### 1981
-
-![1981 Cover](images/1981-cover.jpg)
-
-![1981 Cover with Mail Drop Cachet](images/Cover-with-Mail-Drop-Cachet.jpg)
-
-![1981 Insert](images/1981-insert.jpg)
-
-![1981 Air Letter](images/1981-airletter-1.jpg)
-
-![1981 Air Letter](images/1981-airletter-2.jpg)
-
-![1981 Air Letter](images/1981-airletter-3.jpg)
-### 1996
-
-![1996 Cover](images/1996-cover.jpg)
-
-![1996 Insert](images/1996-insert.jpg)
-
-### 2016
-
-<div align="center">Congress Cover</div>
-![Congress cover](images/congress-cover.jpg)
-<div align="center">Insert with sayings from King James Authorised Bible</div>
-![Insert 1](images/insert-1.jpg)
-<div align="center">Insert with history of The House of Stewart/Stuart</div>
-![Insert 2](images/insert-2.jpg)
-
-[back to top](#history)
-
 ## 2500th Meeting
+
+Content still to come.
 
 [back to top](#history)
 
@@ -156,15 +117,15 @@ The Society wishes to thank the following members who have contributed selection
 
 Some pages from the Caledonian Philatelic Society's archives illustrating its birth as the Junior Philatelic Society of Scotland and its early Philatelic activities.
 
-### Fr. 4-6    Caledonian PS Forgery collection
+### Fr. 4-6 Caledonian PS Forgery collection
 
 A selection of some of the varied material contained in the Society's Forgery Collection.
 
-### Fr. 7, 8   "I belonged to Glasgow"
+### Fr. 7-8 "I belonged to Glasgow"
 
 Glaswegians on stamps, covers, booklets and other philatelic material. A display specially commissioned for the Centenary of the Caledonian Philatelic Society in 2006.
 
-### Fr. 9,10   The Clyde - Shipbuilder to the Wor
+### Fr. 9-10 The Clyde - Shipbuilder to the Wor
 
 The following sheets seek to give a brief history of the River Clyde and through the medium of stamps illustrate the variety of ships built in the many shipyards along its banks.
 
@@ -176,20 +137,20 @@ A selection of handstamps from this popular Clyde island - covering the period 1
 
 Postcards were at their highest popularity when in 1906 Neil Munro published his short stories relating the escapades of Para Handy and the crew of the Vital Spark as they sailed ^around the Clyde and the West of Scotland. Here postcards are used, not too seriously, to illustrate the topical events that Munro often featured in his tales.
 
-### Fr. 13,14 Campbeltown - Postal markings to 1840
+### Fr. 13-14 Campbeltown - Postal markings to 1840
 
 A Registered Port with its own fishing fleet, it was the second Post Office in the County of Argyll and was opened by 1755. (The first was at Inveraray by 1715.) A Royal Charter dated 19th April 1700 was granted by King William III, raising the old Burgh and Barony to the "Dignities and Privileges of a Royal Burgh".
 
-### Fr. 15,16 Numbered postmarks of Lanarkshire
+### Fr. 15-16 Numbered postmarks of Lanarkshire
 
 This exhibit shows examples of the barred 1844 type, the duplex and circular postmarks. Some struck in blue, postal rates,
 instructional postmarks, unusual frankings and the rare Hamilton single arc duplex are shown.
 
-### Fr. 17, 18 Postmarks of the Caledonian Railway ###avelling Post Office
+### Fr. 17-18 Postmarks of the Caledonian Railway ###avelling Post Office
 
 A collection of postmarks starting from the early undated ones of 1851 (red for day, black for night) to more modem ones used as late as 1982.
 
-### Fr. 19, 20 The Mystery of the "IRELAND" Handstamps
+### Fr. 19-20 The Mystery of the "IRELAND" Handstamps
 
 The exhibit shows two aspects of this fascinating subject. Frame 1 - examples of the 40mm and 45mm IRELAND
 handstamps in pale claret and black, struck in Ireland. Frame 2 - examples of the 38mm and 66mm S/IRELAND handstamps used in London on letters arriving on a Sunday.
@@ -202,7 +163,7 @@ The post office opened in 1725 with the town becoming a Burgh of Barony in 1748.
 
 On 8th May 1933 Highland Airways inaugurated a passenger service between Inverness and Kirkwall. In 1934 the PMG placed a contract for the conveyance of all first class mail by Highland Airways. This service commenced on 29th May 1934.
 
-### Fr.    Greece
+### Fr. Greece
 
 Early Airmails A selection of covers to illustrate the early designs of air- mail stamps. Evidence for developing routes e.g. Athens-Cape Town etc.
 
@@ -219,7 +180,7 @@ For decades battleships had been the prime ships of the Royal Navy. These sheets
 Stamps can be altered by war in a number of ways - local stamps overprinted by the occupying power; stamps of the occupying power
 overprinted etc., etc. The subject of this display is War Relief, Red Cross and War Tax surcharged stamps.
 
-### Fr. 27, 28 Uganda Internment Camps WW II
+### Fr. 27-28 Uganda Internment Camps WW II
 
 The exhibit shows examples of mail relating to the internment camps in Uganda with particular emphasis on the Maltese removed
 from Malta under the emergency Powers Act.
@@ -232,19 +193,19 @@ Malawi was granted independence on 6th July 1964 and celebrated the event with a
 
 The war against Russia, more commonly known today as The Crimean War, started in October 1853 when the Turks declared war on the Russians who had occupied Moldavia and Wallachia - still part of the Ottoman Empire at the time. The Turks had an alliance with France and France with Britain and they joined in during March 1854, the war lasted until 1856.
 
-### Fr.31,32 Philatelic History
+### Fr. 31-32 Philatelic History
 
 Extracts from a collection of letters to and from notable figures in the world of Philately: illustrating the history of our hobby.
 
-### Fr. 33,34 Saudi Arabia
+### Fr. 33-34 Saudi Arabia
 
 This exhibit shows the Sir R. Storrs' copy of the Survey of Egypt book, his cover to Sir Mark Sykes (of the Sykes/Picot treaty). A proof with (Lawrence's?) notes  and how Sherif Hussain's 'unadopted' design eventually was adopted.
 
-### Fr. 35, 36 Imperial Russia
+### Fr. 35-36 Imperial Russia
 
 A study of the stamps and postal history showing the various printings of the 1914 and 1915 War Charity issues produced for the benefit of the widows' and orphans' fund organised by the Imperial Women's Patriotic Fund.
 
-### Fr. 37,38 Straits Settlements The Indian Administration mail to 1867
+### Fr. 37-38 Straits Settlements The Indian Administration mail to 1867
 
 The British settlements along the east coast of the Straits of Malacca were acquired around the beginning of the nineteenth century and amalgamated into the Strait Settlements in 1826. The display traces the early markings and the use of India stamps in Penang and Singapore up to the time of transfer to the Colonial Office in 1867.
 
@@ -266,7 +227,7 @@ during the reign of Queen Victoria, from the original Artist's drawings to the i
 
 With the occupation of the Channel Islands by German forces various 'local' stamps were produced to meet postal requirements as British stamps were no longer available. Following on from the earlier "Arms' issue, the famous Jersey artist Edward Blampied was commissioned by the authorities to design a set of six stamps, depicting local scenes. This display of these 'Pictorials' includes proofs, gutter pairs, varieties and a selection of covers and cards.
 
-### Fr. 43,44 Netherlands Mail censored during the Boer War an### 1
+### Fr. 43-44 Netherlands Mail censored during the Boer War an### 1
 
 The Netherlands was a non-belligerent nation in both these conflicts of the first two decades of the 20th century. However both incoming and outgoing mails suffered censorship by various authorities. This brief display shows examples of some of the marks and labels used in a variety of situations.
 
@@ -286,7 +247,7 @@ Rotary International celebrated its 100th anniversary in 2005, an event commemor
 
 A topic of conversation amongst the members of the newly formed Caledonian Philatelic Society must surely have been the theories published by Albert Einstein the previous year (1905). This short display looks at aspects of his life and work.
 
-### Fr. 49, 50 Golf
+### Fr. 49-50 Golf
 
 A selection of philatelic items illustrating the Royal and Ancient game.
 
