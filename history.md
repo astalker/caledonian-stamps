@@ -42,7 +42,7 @@ In the 21st Century, the Caledonian Philatelic Society also continues to flouris
 
 The Association of Scottish Philatelic Societies (ASPS) is the association bringing together all the Philatelic Societies in Scotland. Each year a Congress is held in April and one of the member societies undertakes hosting, Usually the choice of year to host the congress ties in with some significant event related to that society. The Caledonian Philatelic Society hosted Congress, in recent years, in 1972, 1981, 1996 and 2016 on significant Society anniversaries. For each Congress, to raise funds, it is normal for Societies to produce special covers and the covers for the years above are shown below. There are also inserts which provide information and background to the anniversary, often tieing in to other signifiv=-acnt anniversaries.
 
-The cover sproduced, along with the inserts, are shown on the [Congress Covers page](./congress-covers).
+The covers produced, along with the inserts, are shown on the [Congress Covers page](./congress-covers).
 
 [back to top](#history)
 
