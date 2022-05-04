@@ -14,6 +14,8 @@ Hosting of the Congress in 1972 tied in with the 125th Anniversary of the Caledo
 
 ## 1981
 
+Congress in 1981 celebrated the Centenary of the Amalgamation of the Argyll and Sutherland Highlanders in 1881. One of the covers and the Air Letter were dropped from a balloon and have a "Mail Drop" cachet.
+
 ![1981 Cover](images/1981-cover.jpg)
 
 ![1981 Cover with Mail Drop Cachet](images/Cover-with-Mail-Drop-Cachet.jpg)
@@ -28,11 +30,15 @@ Hosting of the Congress in 1972 tied in with the 125th Anniversary of the Caledo
 
 ## 1996
 
+Congress in 1996 celebrated the 90th anniversary of the Caledonian Philatelic Society. With it's links to Strathclyde University the 200th Anniversary of the founding of Anderson's Institution - the progenitor of the University, is also celebrated. 
+
 ![1996 Cover](images/1996-cover.jpg)
 
 ![1996 Insert](images/1996-insert.jpg)
 
 ## 2016
+
+2016 was a special year for the Caledonian Philatelic Society and hosting of Congress tied in with the Society's 100th anniversary year As a theme the 700th Anniversary of the birth of Robert II, the first of the Stewart Dynasty, is remembered with two inserts providing backgrouind information on the Stewarts. 
 
 <div align="center">Congress Cover</div>
 ![Congress cover](images/congress-cover.jpg)
