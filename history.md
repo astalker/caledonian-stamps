@@ -106,6 +106,8 @@ The report of the meeting on the Renfrewshire Council's website has been deleted
 
 ## Royal Philatelic Society of Great Britain Visit 2006
 
+The Royal Philatelic Society London is the oldest philatelic Society in the world, established in 1869 as The Philatelic Society, London. It is regarde as one of the premier philatelic societies in the world. Some of our members have been elected as Fellows of the RPSL (FRPSL) - a prestigious honour. It is an honour to be invited to present displays at RPSL and the Caledonian Philatelic Society was duly invited in 2006 in their Centenary year.
+
 ![rpsl-visit-header](images/rpsl-visit.png)
 
 The Society wishes to thank the following members who have contributed selections from their collections for this display.
