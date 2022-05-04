@@ -66,6 +66,10 @@ Joan Trew also produced a specially commissioned display which charted some of t
 
 ## Philatelic Congress of Great Britain
 
+Amongst other events and activities ABPS (Association of British Philatelic Socieies) organises the annual Philatelic Congress of Great Britain. This is held on an annual basis at a different venue each year. Congress is the opportunity to meet with fellow collectors and events include discussions, displays and visits, plus the ever-enjoyable Congress Banquet. In 2006 t,o coincide with the Centenary of the Society, ABPS Congress was hosted by Caledonian Philatelic Society in the Normandy Hotel in Renfrew.
+
+The highlight for many is the occasion at which the Congress Medal is presented. recognising those who have achieved international recognition for their outstanding studies and research in the philatelic sphere, demonstrated through their own collections 
+
 ![Group Photo](images/2Derby_4.jpg)
 
 
