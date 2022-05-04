@@ -2,6 +2,8 @@
 
 ## 1972
 
+Hosting of the Congress in 1972 tied in with the 125th Anniversary of the Caledonian Railway. A Postcard is shown of Locomotive 419 which was built in 1907 and was specially taken to Stirling Station where it could be viewed on the day of the Congress. The card was carried on the Loco on the day. Cachets in black and red tie in with the First and Second Class postage stamps applied.
+
 ![1972 Congress cover Black cachet](images/1972-cover.jpg)
 
 ![1972 Congress cover Red cachet](images/1972-Cover-Red-Cachet.jpg)
