@@ -116,7 +116,7 @@ The following image shows the cover of the catalogue of the display given to RPS
 
 ![Catalogue of Display](images/img0002.JPG)
 
-Members of the Caledonian Philatelic Society sug=bmitted a number of frames on a very divers range of topics for display at the RPSL. The frames and topice-s are listed below.
+Members of the Caledonian Philatelic Society submitted a number of frames on a very divers range of topics for display at the RPSL. The frames and topice-s are listed below.
 
 ### Fr. 1-3   The Caledonian Philatelic Society
 
