@@ -13,8 +13,8 @@ A Family Day is scheduled for the 5th of November 2022 in the Kelvin Hall. In pr
 
 The Social Evening is scheduled for March 24th and, following the successful one 25th March 2922, members are invited to come along and enjoy the fun.
 
-Date  | Subject | Member
------ | ------- | ------
+Date  | Subject | Member | ZOOM Meetings
+----- | ------- | ------ | -------------
 Oct 6  | President's Night | Ian Mason
 Oct 13 | The People's War | Maurice Buxton | ZOOM Meeting
 Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn
