@@ -35,10 +35,10 @@ Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Staps | Dr David Stalker
 Feb 7  | Joint Meeting with Glasgow Philatelic Society | Posasible alternative is a ZOOM meeting on 9 Feb
 Feb 16 | Copmpetition Night
 Feb 23 | US States | George Henshilwood
-Mar 2  | Auction Night
-Mar 7  | Joint Meeting with Glasgow Philatelic Society | Posasible alternative is a ZOOM meeting on 9 Mar
-Mar 16 | Visit by Lothian Philatelic Society
-Mar 23 | Faroe islands | Alistair Burrow
+March 2  | Auction Night
+March 7  | Joint Meeting with Glasgow Philatelic Society | Posasible alternative is a ZOOM meeting on 9 Mar
+March 16 | Visit by Lothian Philatelic Society
+March 23 | Faroe islands | Alistair Burrow
 March 24 | Social Evening | Hilton Grosvenor Hotel
 Mar 30 | GB Royalty Visits Abroad | Colin Marshall
 April 14/15 | Annual Congress of ASPS | Dewar's Centre, Perth
