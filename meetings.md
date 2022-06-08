@@ -16,20 +16,20 @@ The Social Evening is scheduled for March 24th and, following the successful one
 Date  | Subject | Member
 ----- | ------- | ------
 Oct 6  | President's Night | Ian Mason
-Oct 13 | The People's War | Maurice Buxton
+Oct 13 | The People's War | Maurice Buxton | ZOOM Meeting
 Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn
 Oct 27 | The World of Revenues | Dr Stewart Gardiner FRPSL
 Nov 3  | Visit by Largs Philatelic Society | Mike Ellison 
 Nov 5  | Family Day at Kelvin Hall
 Nov 10 | Alphabet Lottery 
 Nov 17 | Bourse
-Nov 24 | Visit by Leeds Philatelic Society 
+Nov 24 | Visit by Leeds Philatelic Society | ZOOM Meeting
 Dec 1  | Nifty needles | Maureen Matheson
-DeC 8  | British Owls/ Aphrodites Island | James Wigmore
+DeC 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
 Dec 15 | Christmas Evening
 Jan 5  | Committee Entertains 
 Jan 10 | Joint Meeting with Glasgow Philatelic Society | Posasible alternative is a ZOOM meeting on 12 Jan
-Jan 19 | Agathon Faberge - Potrait of a Philatelist| Dr Jefferey Stone FRPSL
+Jan 19 | Agathon Faberge - Potrait of a Philatelist| Dr Jefferey Stone FRPSL | ZOOM Meeting
 Jan 26 | New Members' Display
 Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Staps | Dr David Stalker
 Feb 7  | Joint Meeting with Glasgow Philatelic Society | Posasible alternative is a ZOOM meeting on 9 Feb
