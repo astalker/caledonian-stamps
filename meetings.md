@@ -13,31 +13,31 @@ In line with the latest advice from the Scottish Government, we suggest that you
 
 Date  | Subject | Member
 ----- | ------- | ------
-Oct 7  | A surprise from our new President | Maureen Matheson
-Oct 14 | Hotel Post Offices on the Nile | Richard Wheatley FRPSL
-Oct 21 | Early Development of USA Philately | Maurice Buxton
-Oct 28 | Sir Hubert Wilkins (Australian Polar Explorer) | Alan Godfrey FRPSL
-Nov 4  | The Canal Zone | Mike Ellison
-Nov 11 | Watermarks: from trademarks to modern security "John Dickinson and his Silk Thread Paper"| Wendy Buckle FRPSL
-Nov 18 | New Zealand Revenues | Paul Woods
-Nov 25 | Early Canada | Graham Searle
-Dec 2 | Machins | David Graham
-DeC 9 | Visit from Leeds Philatelic Society
-Dec 16 | 6 Sheeets from Members on a "Festive" theme
-Jan 6 | 8 - 10 sheets | Committee Entertains
-Jan 13 | Presidential Display
-Jan 20 | Early Guernsey Postal History | Julian Bagwell
-Jan 27 | First Scottish Registration Labels | Terry Woods 
-Feb 3 | CYNICUS ( Martin Anderson) | Richard Smith
-Feb 10 | Valentines Through the Ages | Dr Stewart Gardiner | Renfield Centre
-Feb 17 | 6 - 8 sheets | Alphabet Lottery Part 1
-Feb 24 | The German Occupation of the Channel Islands | ALan Whittaker
-Mar 3 | Statue of Liberty | Jon Matthias
-Mar 10 |Visit from Lanarkshire Philatelic Society | | Renfield Centre
-Mar 17 | Postal History | Lyn Robinson
-March 24 | Turkey | Philip Longbottom FRPSL
-March 25 | Social Evening | Hilton Grosvenor Hotel
-Mar 31 | 6 - 8 sheets | Alphabet Lottery Part 2
-April 7 | Gilbert and Ellis Islands | Robin Sherman | Renfield Centre
-April 14 | Rowland Hill, Genius and Benefactor | Alan Godfrey FRPSL
-Apr 28| A G M
+Oct 6  | President's Night | Ian Mason
+Oct 13 | The People's War | Maurice Buxton
+Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn
+Oct 27 | The World of Revenues | Dr tewart Dardiner FRPSL
+Nov 3  | Visit by Largs Philatelic Society | Mike Ellison 
+Nov 5  | Family Day at Kelvin Hall
+Nov 10 | Alphabet Lottery 
+Nov 17 | Bourse Posasible alternative is a ZOOM meeting on 12 Jan
+Nov 24 | Visit by Leeds Philatelic Society 
+Dec 1  | Nifty needles | Maureen Matheson
+DeC 8  | British Owls/ Aphrodites Island | James Wigmore
+Dec 15 | Christmas Evening
+Jan 5  | Committee Entertains 
+Jan 10 | Joint Meeting with Glasgow Philatelic Society | Posasible alternative is a ZOOM meeting on 12 Jan
+Jan 19 | Agathon Faberge - Potrait of a Philatelist| Dr Jefferey Stone FRPSL
+Jan 26 | New Members' Display
+Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Staps | Dr David Stalker
+Feb 7  | Joint Meeting with Glasgow Philatelic Society | Posasible alternative is a ZOOM meeting on 9 Feb
+Feb 16 | Copmpetition Night
+Feb 23 | US States | George Henshilwood
+Mar 2  | Auction Night
+Mar 7  | Joint Meeting with Glasgow Philatelic Society | Posasible alternative is a ZOOM meeting on 9 Mar
+Mar 16 | Visit by Lothian Philatelic Society
+Mar 23 | Faroe islands | Alistair Burrow
+March 24 | Social Evening | Hilton Grosvenor Hotel
+Mar 30 | GB Royalty Visits Abroad | Colin marshall
+April 14/15 | Annual Congress of ASPS | Dewar;s Centre, Perth
+TBA    | A G M
