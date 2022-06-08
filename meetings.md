@@ -16,11 +16,11 @@ Date  | Subject | Member
 Oct 6  | President's Night | Ian Mason
 Oct 13 | The People's War | Maurice Buxton
 Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn
-Oct 27 | The World of Revenues | Dr tewart Dardiner FRPSL
+Oct 27 | The World of Revenues | Dr Stewart DGrdiner FRPSL
 Nov 3  | Visit by Largs Philatelic Society | Mike Ellison 
 Nov 5  | Family Day at Kelvin Hall
 Nov 10 | Alphabet Lottery 
-Nov 17 | Bourse Posasible alternative is a ZOOM meeting on 12 Jan
+Nov 17 | Bourse
 Nov 24 | Visit by Leeds Philatelic Society 
 Dec 1  | Nifty needles | Maureen Matheson
 DeC 8  | British Owls/ Aphrodites Island | James Wigmore
@@ -38,6 +38,6 @@ Mar 7  | Joint Meeting with Glasgow Philatelic Society | Posasible alternative i
 Mar 16 | Visit by Lothian Philatelic Society
 Mar 23 | Faroe islands | Alistair Burrow
 March 24 | Social Evening | Hilton Grosvenor Hotel
-Mar 30 | GB Royalty Visits Abroad | Colin marshall
-April 14/15 | Annual Congress of ASPS | Dewar;s Centre, Perth
+Mar 30 | GB Royalty Visits Abroad | Colin Marshall
+April 14/15 | Annual Congress of ASPS | Dewar's Centre, Perth
 TBA    | A G M
