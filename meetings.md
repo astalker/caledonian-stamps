@@ -7,9 +7,9 @@ It is hoped that the easing of of restrictions due to the COVID-19 pandemic will
 
 Log in Details for ZOOM meetings will be emailed weekly as and when required.. Please contact the President or ZOOM Coordinator (see contacts page) if you wish to be added to the invitation list.
 
-Meeting venues, in the event that we cannot attain access to Strathclyde University, or if alternative venues are selected, willl be advised in advance of such meetings. There are sthree meetings where it is intended to hold a joint meeting with Glasgow Philatelic Society - this a heavily dependent on Glasgow Philatelic Socity being able to gain access to their usual venue in Partick Burgh Town Hall (currently a COVID-19 vaccination Centre). Information on these meetings will be disseminated in advance.
+Meeting venues, in the event that we cannot attain access to Strathclyde University, or if alternative venues are selected, will be advised in advance of such meetings. There are three meetings where it is intended to hold a joint meeting with Glasgow Philatelic Society - this a heavily dependent on Glasgow Philatelic Society being able to gain access to their usual venue in Partick Burgh Town Hall (currently a COVID-19 vaccination Centre). Information on these meetings will be disseminated in advance.
 
-A Family Day is scheduled for the 5th of November 2022 in the Kelvin Hall. This was a great occasion to introduce yougsters and their parents to the world of Stamp Collecting and participants will be required to man and heldp at the stand the Society will be using.
+A Family Day is scheduled for the 5th of November 2022 in the Kelvin Hall. In prervious years this was a great occasion to introduce yougsters and their parents to the world of Stamp Collecting and participants will be required to man and help at the stand the Society will be using.
 
 The Social Evening is scheduled for March 24th and, following the successful one 25th March 2922, members are invited to come along and enjoy the fun.
 
