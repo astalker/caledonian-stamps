@@ -2,21 +2,19 @@
 
 [Previous Meetings](./previous-meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
-## 2021 - 2022
-Continuing restrictions on access to our normal meeting room in Strathclyde University mean we are continuing with virtual meetings using ZOOM. The first face-to-face meeting was successfully held on Februry 10th 2022 in the Renfield Centre and the next two face-to-face meetings will be held there on 10th March and on April 7th. 
+## 2022 - 2023
+It is hoped that the easing of of restrictions due to the COVID-19 pandemic will enable a resumption of meetings in the usual venue at Strathclyde University. Nevertheless a blended mixture of actual face-to face meetings and ZOOM meetings will take place, The value of ZOOM meetings was amply shown in the last two years where the Socirty were able to get a number of virtual displays form eminent philatelists from various parts of the country on a completely diverse range of subjects. In the winter months ZOOM meetings can obviate the need for travel on dark, wintry nights.
 
-Log in Details for ZOOM meetings will be emailed weekly. Please contact the President or ZOOM Coordinator (see cotacts page) if you wish to be added to the invitation list.
+Log in Details for ZOOM meetings will be emailed weekly as and when required.. Please contact the President or ZOOM Coordinator (see contacts page) if you wish to be added to the invitation list.
 
-Meetings in the Renfield Centre will be held in the Kirk Lounge on the 1st Floor. There is a lift available  The room is booked from  6.00-9.30.  After setting up we will hold a small Bourse from 6.30 and meetings will begin between 7.15 and 7.30 as usual.  There is ample parking on Bath Street after 6pm or in the nearby NCP beside the Kings Theatre.  Public Transport is also available.  
-
-In line with the latest advice from the Scottish Government, we suggest that you have a negative Lateral Flow Test before attending face-to-face meetings and that you do not attend if you are feeling unwell for any reason.  Masks must be worn at all face to face meetings unless you are exempt. Unless otherwise indicated, the meetings below are to be held using ZOOM.
+Meeing venues, in the event that we cannot attain access to Strathclyde University, or if alternative venues are selected, willl be advised in advance of such meetings.
 
 Date  | Subject | Member
 ----- | ------- | ------
 Oct 6  | President's Night | Ian Mason
 Oct 13 | The People's War | Maurice Buxton
 Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn
-Oct 27 | The World of Revenues | Dr Stewart DGrdiner FRPSL
+Oct 27 | The World of Revenues | Dr Stewart Gardiner FRPSL
 Nov 3  | Visit by Largs Philatelic Society | Mike Ellison 
 Nov 5  | Family Day at Kelvin Hall
 Nov 10 | Alphabet Lottery 
