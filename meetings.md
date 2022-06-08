@@ -40,6 +40,6 @@ March 7  | Joint Meeting with Glasgow Philatelic Society | Posasible alternative
 March 16 | Visit by Lothian Philatelic Society
 March 23 | Faroe islands | Alistair Burrow
 March 24 | Social Evening | Hilton Grosvenor Hotel
-Mar 30 | GB Royalty Visits Abroad | Colin Marshall
+March 30 | GB Royalty Visits Abroad | Colin Marshall
 April 14/15 | Annual Congress of ASPS | Dewar's Centre, Perth
 TBA    | A G M
