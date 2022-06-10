@@ -13,7 +13,7 @@ A Family Day is scheduled for the 5th of November 2022 in the Kelvin Hall. In pr
 
 The Social Evening is scheduled for March 24th and, following the successful one 25th March 2922, members are invited to come along and enjoy the fun.
 
-During Jukl, August and September there will be three summer meetings. As in previous years these will be totally informal and run on the basis of "show and tell". That is bring along any item that you would like to show and talk about.
+During July, August and September there will be three summer meetings. As in previous years these will be totally informal and run on the basis of "show and tell". That is bring along any item that you would like to show and talk about.
 
 Date  | Subject | ZOOM Meetings
 ----- |-------  | -------------
