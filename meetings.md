@@ -2,7 +2,7 @@
 
 [Previous Meetings](./previous-meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
-## 2022 - 2023
+## 2022 - 2023 ##
 It is hoped that the easing of of restrictions due to the COVID-19 pandemic will enable a resumption of meetings in the usual venue at Strathclyde University. Nevertheless a blended mixture of actual face-to face meetings and ZOOM meetings will take place, The value of ZOOM meetings was amply shown in the last two years where the Society were able to get a number of virtual displays form eminent philatelists from various parts of the country on a completely diverse range of subjects. In the winter months ZOOM meetings can obviate the need for travel on dark, wintry nights.
 
 Log in Details for ZOOM meetings will be emailed weekly as and when required.. Please contact the President or ZOOM Coordinator (see contacts page) if you wish to be added to the invitation list.
@@ -12,6 +12,14 @@ Meeting venues, in the event that we cannot attain access to Strathclyde Univers
 A Family Day is scheduled for the 5th of November 2022 in the Kelvin Hall. In prervious years this was a great occasion to introduce yougsters and their parents to the world of Stamp Collecting and participants will be required to man and help at the stand the Society will be using.
 
 The Social Evening is scheduled for March 24th and, following the successful one 25th March 2922, members are invited to come along and enjoy the fun.
+
+During Jukl, August and September there will be three summer meetings. As in previous years these will be totally informal and run on the basis of "show and tell". That is bring along any item that you would like to show and talk about.
+
+Date  | Subject | ZOOM Meetings
+----- |-------
+July 14 | Summer Meeting | ZOOM
+Aug 4   | Summer Meeting | ZOOM
+Sept 1  | Summer Meeting | ZOOM
 
 Date  | Subject | Member | ZOOM Meetings
 ----- | ------- | ------ | -------------
