@@ -21,8 +21,8 @@ July 14 | Summer Meeting | ZOOM
 Aug 4   | Summer Meeting | ZOOM
 Sept 1  | Summer Meeting | ZOOM
 
-Date  | Subject | Member | ZOOM Meetings
------ | ------- | ------ | -------------
+Date  | Subject | Displayer | ZOOM Meetings
+----- | ------- | --------- | -------------
 Oct 6  | President's Night | Ian Mason
 Oct 13 | The People's War | Maurice Buxton | ZOOM Meeting
 Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn
