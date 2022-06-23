@@ -2,7 +2,7 @@
 
 The President and fellow office bearers can be contacted at the following email addresses:
 
-President: <a href="mailto:president@caledonianphilatelic.org.uk">president@caledonianphilatelic.org.uk</a>
+President: <a href="mailto:caledonianpresident@outlook.com">caledonianpresident@outlook.com</a>
 
 Senior vice-president: <a href="mailto:senior-vice-president@caledonianphilatelic.org.uk">senior-vice-president@caledonianphilatelic.org.uk</a>
 
