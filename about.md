@@ -16,4 +16,4 @@ There is also an Advisory Committee to give advice to the relatives of deceased 
 
 Each year there is a social evening, for which a souvenir card is created, and where the Society’s annual competition winners are awarded their trophies.
 
-New members are very welcome and the current annual subscription is £12, with the option to enrol on an ‘out of town’ membership rate if you live away from Glasgow. For details, or to join, contact Ray Welland by e-mail: secretary@caledonianphilatelicsociety.org.uk
+New members are very welcome and the current annual subscription is £15, with the option to enrol on an ‘out of town’ membership rate if you live away from Glasgow. For details, or to join, contact Dr Stewart Gardiner by e-mail: secretary@caledonianphilatelicsociety.org.uk
