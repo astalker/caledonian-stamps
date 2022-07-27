@@ -26,13 +26,13 @@ Date  | Subject | Displayer | ZOOM Meetings
 Oct 6  | President's Night | Ian Mason
 Oct 13 | The People's War | Maurice Buxton | ZOOM Meeting
 Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn
-Oct 27 | The World of Revenues | Dr Stewart Gardiner FRPSL
+Oct 27 | Nifty needles| Maureen Matheson
 Nov 3  | Visit by Largs Philatelic Society | Mike Ellison 
 Nov 5  | Family Day at Kelvin Hall
 Nov 10 | Alphabet Lottery 
 Nov 17 | Bourse
 Nov 24 | Visit by Leeds Philatelic Society | ZOOM Meeting
-Dec 1  | Nifty needles | Maureen Matheson
+Dec 1  | NThe World of Revenues | Dr Stewart Gardiner FRPSL
 DeC 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
 Dec 15 | Christmas Evening
 Jan 5  | Committee Entertains 
