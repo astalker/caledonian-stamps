@@ -32,7 +32,7 @@ Nov 5  | Family Day at Kelvin Hall
 Nov 10 | Alphabet Lottery 
 Nov 17 | Bourse
 Nov 24 | Visit by Leeds Philatelic Society | ZOOM Meeting
-Dec 1  | NThe World of Revenues | Dr Stewart Gardiner FRPSL
+Dec 1  | The World of Revenues | Dr Stewart Gardiner FRPSL
 DeC 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
 Dec 15 | Christmas Evening
 Jan 5  | Committee Entertains 
