@@ -4,13 +4,13 @@
 
 ## 2022 - 2023 ##
 ## GOOD NEWS ## 
-Due to easing of restrictions over the last two years we are able to resume evening meetings at our usual venue in Strathclyde University. As before, the meetings will be held in the Graham Hills Building, Room GH542 at 7.30pm. access is from Richmond Street and George Street - see the Location Page for directions.
+Due to easing of restrictions over the last two years we are able to resume evening meetings at our usual venue in Strathclyde University. As before, the meetings will be held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions.
 
-The value of ZOOM meetings was very well demonstrated in the last two years and enabled us to have a wide variety of displays , not  only from our own members but from further apart. This ability to hold virtual meetings saves on travel, especially in the winter months, and gives access to excellent displays from all over the UK.The syllabus this year is , as a result, a blended mixture of actual face-to face meetings and ZOOM meetings.
+The value of ZOOM meetings was very well demonstrated in the last two years and enabled us to have a wide variety of displays , not  only from our own members, but from further apart. This ability to hold virtual meetings saves on travel, especially in the winter months, and gives access to excellent displays from all over the UK. The syllabus this year is, as a result, a blended mixture of actual face-to face meetings and ZOOM meetings.
 
-Log in Details for ZOOM meetings will be emailed weekly as and when required.. Please contact the President or ZOOM Coordinator (see contacts page) if you wish to be added to the invitation list.
+Log in Details for ZOOM meetings will be emailed as and when required.. Please contact the President or ZOOM Coordinator (see contacts page) if you wish to be added to the invitation list.
 
- There are three meetings where we have a joint afyternoon meeting with Glasgow Philatelic Society.
+There are three meetings where we have a joint afyternoon meeting with Glasgow Philatelic Society.
  
 A Family Day is scheduled for the 5th of November 2022 in the Kelvin Hall. In previous years this was a great occasion to introduce youngsters and their parents to the world of Stamp Collecting and participants will be required to man and help at the stand the Society will be using.
 
