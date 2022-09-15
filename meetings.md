@@ -20,7 +20,7 @@ Date  | Subject | Displayer | ZOOM Meetings
 ----- | ------- | --------- | -------------
 Oct 6  | President's Night | Ian Mason
 Oct 13 | The People's War | Maurice Buxton FRPSL| ZOOM Meeting
-Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn
+Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn |ZOOM Meeting
 Oct 27 | Nifty needles| Maureen Matheson
 Nov 3  | Visit by Largs Philatelic Society |
 Nov 5  | Family Day at Kelvin Hall
