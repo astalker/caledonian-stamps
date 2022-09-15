@@ -12,7 +12,7 @@ Full details and other detail of events and news about the hobby of stamp collec
 
 The Caledonian Philatelic Society (formed in 1906) exists to promote interest in and encourage the growth of philately and the fellowship that arises from it.
 
-Meetings will be held in Atrathclyde University in the Graham Hills Building, Room GH542 at 7.30pm.
+Meetings will be held in Strathclyde University in the Graham Hills Building, Room GH542 at 7.30pm.
 
 Members enjoy talks, members' evenings on different themes, visits from other philatelic societies, annual competitions and an annual social evening, for which a souvenir card is created.
 
