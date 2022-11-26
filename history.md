@@ -6,6 +6,7 @@
 1. [110th Anniversary](#110th-anniversary)
 1. [Philatelic Congress of Great Britain](#philatelic-congress-of-great-britain)
 1. [Royal Philatelic Society of Great Britain Visit 2006](#royal-philatelic-society-of-great-britain-visit-2006)
+1. [75th Anniversary](#75th-Anniversary)
 
 One of the UK’s longest-running philatelic societies, Caledonian Philatelic Society was founded on 14 February 1906 when a group of stamp collectors met on the premises of Douglas, Cook & Co Stamp Dealers on Sauchiehall Street, Glasgow, and made the decision to form a philatelic society. The group was initially known as the Junior Philatelic Society of Scotland, changing to its current name in 1930. Its first president was Sir John Ure Primrose, Glasgow’s Lord Provost, and he continued as president until his death in 1923. On its 75th anniversary, the Society hosted the annual Congress of Scottish Philatelic Societies at Stirling University. One souvenir produced to mark the anniversary was a miniature sheet depicting a booklet pane with a St Andrews cross which was first printed in 1906, the year that the Society was formed. In its centenary year, the Society hosted the ASPS Congress at Perth; organised the Philatelic Congress of GB in Renfrew in July and gave an invited display to the Royal Philatelic Society London in November 2006. Two special evenings were included in the Syllabus when Past Presidents gave short displays to the members. The society has met at several Glasgow venues over the decades and currently meets weekly from early October to the middle of December and from early January to mid-March on the fifth floor of the Graham Hills Building, University of Strathclyde, George Street. The two thousand-five hundredth meeting of the Society was held on 13 October 2016.
 
@@ -270,3 +271,10 @@ A selection of postcards illustrating the conventions used and problems encounte
 The Philatelic Congress of Great Britain has been hosted by Philatelic Societies throughout Britain in many different venues. This display shows special postmarks and labels from the earlier events.
 
 [back to top](#history)
+
+### Fr 54 75th Anniversary
+
+1906, the year of formation of the Caledonian Philatelic Society, saw the appearance of the so-called “St Andrew’s Cross” in a 2/- King Edward VII booklet of stamps. A souvenir miniature sheet produced tp commemorate the 75th Anniversary of the Society, depicts a reproduction of a pane of stamps from the booklet as shown below. The miniature sheet exists in two shades – yellow-green and blue-green.
+
+A commemorative booklet was also produced, containing a sheet of “Masterpieces in Miniature” depicting paintings in the National Gallery. The booklet was given to members of the Society on its 75th Anniversary. The booklet was printed by Harrison & Sons Ltd. A sheet of 20 “labels” was affixed to the inside of the booklet. Four “labels” were affixed to the front cover with a fifth “label” tied with a commemorative cancellation.
+
