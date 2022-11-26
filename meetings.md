@@ -23,7 +23,7 @@ Oct 13 | The People's War | Maurice Buxton FRPSL| ZOOM Meeting
 Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn |ZOOM Meeting
 Oct 27 | Nifty needles| Maureen Matheson
 Nov 3  | Visit by Largs Philatelic Society |
-Nov 5  | Family Day at Kelvin Hall
+Nov 12  | Family Day at Kelvin Hall
 Nov 10 | Alphabet Lottery 
 Nov 17 | Bourse
 Nov 24 | Visit by Leeds Philatelic Society || ZOOM Meeting
@@ -31,18 +31,20 @@ Dec 1  | The World of Revenues | Dr Stewart Gardiner FRPSL
 DeC 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
 Dec 15 | Christmas Evening
 Jan 5  | Committee Entertains 
-Jan 10 | Joint Afternoon Meeting with Glasgow Philatelic Society |
+Jan 10 | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
 Jan 19 | Agathon Faberge - Potrait of a Philatelist| Dr Jefferey Stone FRPSL | ZOOM Meeting
 Jan 26 | New Members' Display
 Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Staps | Dr David Stalker
-Feb 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | 
+Feb 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
 Feb 16 | Copmpetition Night
 Feb 23 | US States | George Henshilwood
 March 2  | Auction Night
-March 7  | Joint Afternoon Meeting with Glasgow Philatelic Society |
+March 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
 March 16 | Visit by Lothian Philatelic Society
 March 23 | Faroe islands | Alistair Burrow
 March 29 | Social Evening | Glasgow Grosvenor Hotel
 March 30 | GB Royalty Visits Abroad | Colin Marshall
 April 14/15 | Annual Congress of ASPS | Dewar's Centre, Perth
 April 27 | A G M
+
+Glasgow Philatelic Society have secured a new meeting venue. Meetings will be held in the rear hall of Temple Anniesland Parish Church; the address is 869 Crow Road G13 1LE but the rear hall is best accessed off Glencoe Street (which is the first right turn after Anniesland lights as you head to Bearsden). There is a car park at the Church and street parking on Glencoe Street (please leave the car park for those with walking difficulties). Alternatively, you can park in Morrison’s Car Park for up to 3 hours (so plenty of choice).
