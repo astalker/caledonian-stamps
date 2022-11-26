@@ -4,7 +4,7 @@
 
 ## 2022 - 2023 ##
 ## GOOD NEWS ## 
-Due to easing of restrictions over the last two years we are able to resume evening meetings at our usual venue in Strathclyde University. As before, the meetings will be held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions.
+Due to easing of restrictions over the last two years we are able to resume evening meetings at our usual venue in Strathclyde University. As before, the meetings will be held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions and Home Page for access to Graham Hills Building..
 
 The value of ZOOM meetings was very well demonstrated in the last two years and enabled us to have a wide variety of displays , not  only from our own members, but from further apart. This ability to hold virtual meetings saves on travel, especially in the winter months, and gives access to excellent displays from all over the UK. The syllabus this year is, as a result, a blended mixture of actual face-to face meetings and ZOOM meetings.
 
