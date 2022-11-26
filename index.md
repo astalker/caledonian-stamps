@@ -4,7 +4,9 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 ## GOOD NEWS 
 
-Due to easing of restrictions over the last two years we are able to resume evening meetings at our usual venue in Strathclyde University. As before, the meetings will be held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions. The syllabus is made up of a blended mixture of face-to-face meetings and ZOOM meetings - see Meetings Page for details.
+Due to easing of restrictions over the last two years we are able to resume evening meetings at our usual venue in Strathclyde University. As before, the meetings will be held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542.  
+
+The syllabus is made up of a blended mixture of face-to-face meetings and ZOOM meetings - see Meetings Page for details.
 
 Full details and other detail of events and news about the hobby of stamp collecting in Scotalnad can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
 
