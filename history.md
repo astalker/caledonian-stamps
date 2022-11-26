@@ -272,7 +272,7 @@ The Philatelic Congress of Great Britain has been hosted by Philatelic Societies
 
 [back to top](#history)
 
-### Fr 54 75th Anniversary
+### Fr. 53 75th Anniversary
 
 1906, the year of formation of the Caledonian Philatelic Society, saw the appearance of the so-called “St Andrew’s Cross” in a 2/- King Edward VII booklet of stamps. A souvenir miniature sheet produced tp commemorate the 75th Anniversary of the Society, depicts a reproduction of a pane of stamps from the booklet as shown below. The miniature sheet exists in two shades – yellow-green and blue-green.
 
