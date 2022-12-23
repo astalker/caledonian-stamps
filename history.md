@@ -278,8 +278,6 @@ The Philatelic Congress of Great Britain has been hosted by Philatelic Societies
 
 A commemorative booklet was also produced, containing a sheet of “Masterpieces in Miniature” depicting paintings in the National Gallery. The booklet was given to members of the Society on its 75th Anniversary. The booklet was printed by Harrison & Sons Ltd. A sheet of 20 “labels” was affixed to the inside of the booklet. Four “labels” were affixed to the front cover with a fifth “label” tied with a commemorative cancellation.
 
-[back to top](#history)
-
 ![75th Anniversary Folder](images/75th-Anniversary-Folder.jpg)
 
 ![Emerald Green](images/Emerald-Green.jpg)
@@ -287,3 +285,5 @@ A commemorative booklet was also produced, containing a sheet of “Masterpieces
 ![Images](images/Images.jpg)
 
 ![Yellow Green](images/Yellow-Green.jpg)
+
+[back to top](#history)
