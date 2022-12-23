@@ -68,7 +68,7 @@ Joan Trew also produced a specially commissioned display which charted some of t
 
 Amongst other events and activities ABPS (Association of British Philatelic Socieies) organises the annual Philatelic Congress of Great Britain. This is held on an annual basis at a different venue each year. Congress is the opportunity to meet with fellow collectors and events include discussions, displays and visits, plus the ever-enjoyable Congress Banquet. In 2006 t,o coincide with the Centenary of the Society, ABPS Congress was hosted by Caledonian Philatelic Society in the Normandy Hotel in Renfrew.
 
-The highlight for many is the occasion at which the Congress Medal is presented. recognising those who have achieved international recognition for their outstanding studies and research in the philatelic sphere, demonstrated through their own collections 
+The highlight for many is the occasion at which the Congress Medal is presented. recognising those who have achieved international recognition for their outstanding studies and research in the philatelic sphere, demonstrated through their own collections
 
 ![Group Photo](images/2Derby_4.jpg)
 
@@ -272,9 +272,10 @@ The Philatelic Congress of Great Britain has been hosted by Philatelic Societies
 
 [back to top](#history)
 
-### Fr. 53 75th Anniversary
+## 75th Anniversary
 
 1906, the year of formation of the Caledonian Philatelic Society, saw the appearance of the so-called “St Andrew’s Cross” in a 2/- King Edward VII booklet of stamps. A souvenir miniature sheet produced tp commemorate the 75th Anniversary of the Society, depicts a reproduction of a pane of stamps from the booklet as shown below. The miniature sheet exists in two shades – yellow-green and blue-green.
 
 A commemorative booklet was also produced, containing a sheet of “Masterpieces in Miniature” depicting paintings in the National Gallery. The booklet was given to members of the Society on its 75th Anniversary. The booklet was printed by Harrison & Sons Ltd. A sheet of 20 “labels” was affixed to the inside of the booklet. Four “labels” were affixed to the front cover with a fifth “label” tied with a commemorative cancellation.
 
+[back to top](#history)
