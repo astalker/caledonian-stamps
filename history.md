@@ -64,13 +64,11 @@ Joan Trew also produced a specially commissioned display which charted some of t
 
 ## Philatelic Congress of Great Britain
 
-Amongst other events and activities ABPS (Association of British Philatelic Socieies) organises the annual Philatelic Congress of Great Britain. This is held on an annual basis at a different venue each year. Congress is the opportunity to meet with fellow collectors and events include discussions, displays and visits, plus the ever-enjoyable Congress Banquet. In 2006 t,o coincide with the Centenary of the Society, ABPS Congress was hosted by Caledonian Philatelic Society in the Normandy Hotel in Renfrew.
+Amongst other events and activities ABPS (Association of British Philatelic Socieies) organises the annual Philatelic Congress of Great Britain. This is held on an annual basis at a different venue each year. Congress is the opportunity to meet with fellow collectors and events include discussions, displays and visits, plus the ever-enjoyable Congress Banquet. In 2006 to coincide with the Centenary of the Society, ABPS Congress was hosted by Caledonian Philatelic Society in the Normandy Hotel in Renfrew.
 
 The highlight for many is the occasion at which the Congress Medal is presented. recognising those who have achieved international recognition for their outstanding studies and research in the philatelic sphere, demonstrated through their own collections
 
 ![Group Photo](images/2Derby_4.jpg)
-
-
 
 Left to right - Elizabeth Nairn, Alan Wishart, Margaret Morris (Immediate Past President) and Ian Hamilton (President).  Pictured on their recent visit to Derby as part of the preparations for the Philatelic Congress of Great Britain in 2006.
 
@@ -78,31 +76,22 @@ This year's Congress, held in Renfrew in July was organized by the Caledonian Ph
 
 ![cover](images/70ken.jpg)
 
-
-
-
 The Congress Medal for 2006 was awarded to our Secretary Ken Norris for his service to philately in Scotland.
 
 ![photo1](images/pcgb.h1.jpg)
-
 
 Ken on the right with Margaret Morris, his sponsor and Professor John West, Chairman of ABPS.
 
 This photo appeared in the "ABPS News" issue September 2006.
 
-
-
 And last but not least Julia Macleod won a Penny Black at the Reception hosted by Bonhams at the Congress.
 ![photo2](images/ken0001.jpg)
-
-
 
 Graham Childs  with his wife Penny (right) hosted the reception are pictured with Julia (middle left) and Helen Walker the other winner of a Penny Black.
 
 This photo appeared in the "ABPS News" issue September 2006.
 
 The report of the meeting on the Renfrewshire Council's website has been deleted
-
 
 [back to top](#history)
 
@@ -155,7 +144,7 @@ A Registered Port with its own fishing fleet, it was the second Post Office in t
 This exhibit shows examples of the barred 1844 type, the duplex and circular postmarks. Some struck in blue, postal rates,
 instructional postmarks, unusual frankings and the rare Hamilton single arc duplex are shown.
 
-### Fr. 17-18 Postmarks of the Caledonian Railway ###avelling Post Office
+### Fr. 17-18 Postmarks of the Caledonian Railway
 
 A collection of postmarks starting from the early undated ones of 1851 (red for day, black for night) to more modem ones used as late as 1982.
 
