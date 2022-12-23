@@ -280,9 +280,9 @@ A commemorative booklet was also produced, containing a sheet of “Masterpieces
 
 ![75th Anniversary Folder](images/75th-Anniversary-Folder.jpg)
 
-![Emerald Green](images/Emerald-Green.jpg)
-
 ![Images](images/Images.jpg)
+
+![Emerald Green](images/Emerald-Green.jpg)
 
 ![Yellow Green](images/Yellow-Green.jpg)
 
