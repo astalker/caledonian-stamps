@@ -272,15 +272,14 @@ A commemorative booklet was also produced, containing a sheet of "Masterpieces i
 ![Images](images/Images.jpg)
 
 <div style="display:flex">
-<div style="margin-right:10px">
-### Emerald Green
+    <div style="margin-right:10px">
+        <h3>Emerald Green</h3>
+        <img src="images/Emerald-Green.jpg" alt="Emerald Green" />
+    </div>
+    <div>
+        <h3>Yellow Green</h3>
+        <img src="images/Yellow-Green.jpg" alt="Yellow Green" />
+    </div>
+</div>
 
-![Emerald Green](images/Emerald-Green.jpg)
-</div>
-<div>
-### Yellow Green
-
-![Yellow Green](images/Yellow-Green.jpg)
-</div>
-</div>
 [back to top](#history)
