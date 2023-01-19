@@ -269,9 +269,10 @@ A commemorative booklet was also produced, containing a sheet of "Masterpieces i
 
 ![75th Anniversary Folder](images/75th-Anniversary-Folder.jpg)
 
- (images/Images.jpg)
+ ![Titles of Paintings](images/Images.jpg)
 
 The details of the paintings in the folder are listed in the table below:
+
 Stamp | Title of Painting | Artist | Nationality
 ----- | ----------------- | ------ | -----------
   1 | “A Peasant Boy Leaning on a Sill” | Bartholomé Esteban MURILLO (1617 – 1682)]| Spanish
