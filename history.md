@@ -301,7 +301,7 @@ Stamp | Title of Painting | Artist | Nationality
   24 | “An Interior with Musicmakers” | Gabriel METSU (1629 – 1667)| Dutch
   25 | “Susannah Lunden” (c 1624)| Peter Pauwel RUBENS (1577 – 1640)| Flemish
   
-“Stamps” 1 - 20 are contained inside the Commemorative Booklet in sheet form. “Stamps” 21 – 24 are affixed to the front cover.  “Stamp” 25 is affixed to the front cover and “tied” with a commemorative postmark.
+Labels 1 - 20 are contained inside the Commemorative Booklet in sheet form. Labels 21 – 24 are affixed to the front cover.  Label 25 is affixed to the front cover and “tied” with a commemorative postmark.
 
 <div style="display:flex">
     <div style="margin-right:10px">
