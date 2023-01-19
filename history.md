@@ -305,11 +305,11 @@ Stamp | Title of Painting | Artist | Nationality
 
 <div style="display:flex">
     <div style="margin-right:10px">
-        <h3>Emerald Green</h3>
+        <h3>Miniature sheet in Emerald Green</h3>
         <img src="images/Emerald-Green.jpg" alt="Emerald Green" />
     </div>
     <div>
-        <h3>Yellow Green</h3>
+        <h3>Miniature sheet in Yellow Green</h3>
         <img src="images/Yellow-Green.jpg" alt="Yellow Green" />
     </div>
 </div>
