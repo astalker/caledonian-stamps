@@ -86,6 +86,7 @@ Year | Winner
 2018 | G. Henshilwood
 2019 | S. Gardiner
 2020 | G.Henshilwood
+2023 | G.Henshilwood
 
 [back to top](#trophies-and-entry-criteria)
 
@@ -129,6 +130,7 @@ Year | Winner
 2016 | D. Stalker
 2019 | G. Henshilwood
 2020 | D. Stalker
+2023 | D. Stalker
 
 [back to top](#trophies-and-entry-criteria)
 
@@ -188,6 +190,7 @@ Year | Winner
 2018 | S. N. Gardiner
 2019 | S. N. Gardiner
 2020 | A. G. Blakeley
+2023 | G. Henshilwood 
 
 [back to top](#trophies-and-entry-criteria)
 ## Merrylees Trophy
@@ -240,6 +243,7 @@ Year | Winner
 2018 | G. Henshilwood
 2019 | G. Henshilwood
 2020 | G. Henshilwood
+2023 | G. Henshilwood
 
 [back to top](#trophies-and-entry-criteria)
 ## Bill Colley Trophy
@@ -268,16 +272,17 @@ Year | Winner
 2018 | P. McGowan
 2019 | R. Walker
 2020 | R. Walker
+2023 | T. Woods
 
 [back to top](#trophies-and-entry-criteria)
-## Cinderella Trophy
+## Cinderella Trophy (Sam Sankus Trophy)
 This may include local stamps, telegraph stamps, railway stamps, revenues/fiscals, forgeries, bogus and phantom issues. Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels etc.
 
 However, things such as trade, cigarette and telephone cards (unless the image of a stamp is incorporated in the design), matchbox or cheese labels, aerial propaganda leaflets, and other forms of ephemera like emergency money are not considered as Cinderella items for this purpose.
 
 Year | Winner
 ---- | ------
-2021 | I.M Winner
+2023 | S. Gardiner
 
 [back to top](#trophies-and-entry-criteria)
 ## Rules applicable to the above competitions
