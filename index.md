@@ -8,7 +8,7 @@ Due to easing of restrictions over the last two years we are able to resume even
 
 The syllabus is made up of a blended mixture of face-to-face meetings and ZOOM meetings - see Meetings Page for details.
 
-Full details and other detail of events and news about the hobby of stamp collecting in Scotalnad can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
+Full details and other detail of events and news about the hobby of stamp collecting in Scotland can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
 
 ## 2022 - 2023
 
