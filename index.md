@@ -6,34 +6,34 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 The 92nd ASPS Congress was held in the Dewar Centre in Perth on 14-15 April 2023. A number of members entered the National Exhibitions as below:
 
-**Thematic Class**
+#### Thematic Class
 
 George Henshilwood – NZ Health Stamps: A Thematic Approach to the Pre-Decimal Issues (1929 - 1966) – Gold Award (85)
 Ian Mason - The Alternative to Christmas - Silver (70)
 
-**General Class Post 1900**
+#### General Class Post 1900
 
 Dr David Stalker – New Zealand: A Study of the 1967 – 1970 Pictorial Definitives Counter Coils – Gold Award and Winner of the Bridge Allan Trophy (93)
 
-**General Class Pre- 1900**
+#### General Class Pre- 1900
 
 Dr Stewart Gardiner - Tobago - An Island's Stamps in a Frame - Large silver Gilt (83)
 George Henshilwood – Two Key Canadian Map Stamps – Gold Award (87) and Winner of Ferris Trophy 
 
-## Social Philately 
+#### Social Philately 
 George Henshilwood – The Use of Maps and Map Cachets in the Mail – Large Silver Gilt (83)
 
-**Picture Postcards**
+#### Picture Postcards
 
 Alexander Kerr - Helensburgh: Colquhoun Square - Large Silver Gilt (81) and winner of Scottish Postcard Trophy
 REv. J. Colin Caskie - Scottish National Exhibition Glasgow 1911 - Large Silver Gilt (80)
 
-**Cinderella**
+#### Cinderella
 
 Dr Stewart Gardiner - Medicine Tax Duty Stamps - Gold (92) and winner of Jean Osborne Trophy and Dr Hirst Bowl for Best Presentation
 Alexander Kerr  - World Scouting - Small Silver Gilt (76)
 
-**Literature Class**
+#### Literature Class
 
 Brian Dow - ALBA Stamp Group - Scottish Stamp News - The Journal of ALBA Stamp Group - Bronze Silver (68) and winner of Robson Lowe Salver.
 
