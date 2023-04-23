@@ -20,7 +20,8 @@ Dr David Stalker – New Zealand: A Study of the 1967 – 1970 Pictorial Definit
 Dr Stewart Gardiner - Tobago - An Island's Stamps in a Frame - Large silver Gilt (83)
 George Henshilwood – Two Key Canadian Map Stamps – Gold Award (87) and Winner of Ferris Trophy 
 
-#### Social Philately 
+#### Social Philately
+
 George Henshilwood – The Use of Maps and Map Cachets in the Mail – Large Silver Gilt (83)
 
 #### Picture Postcards
