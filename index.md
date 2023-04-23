@@ -6,7 +6,7 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 The 92nd ASPS Congress was held in the Dewar Centre in Perth on 14-15 April 2023. A number of members entered the National Exhibitions as below:
 
-##### Thematic Class
+**Thematic Class**
 George Henshilwood – NZ Health Stamps: A Thematic Approach to the Pre-Decimal Issues (1929 - 1966) – Gold Award (85)
 Ian Mason - The Alternative to Christmas - Silver (70)
 
