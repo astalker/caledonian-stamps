@@ -4,23 +4,21 @@
 
 **Hon. Vice Presidents**
 
- Mrs. M. Morris, DTP, FRPSL, Kenneth Norris, FRPSL
+ Mrs. M. Morris, DTP, FRPSL
 
-**President**: Ian Mason
+**President**: **Elizabeth Nairn**
 
-**Senior Vice-President**: Elizabeth Nairn
+**Senior Vice-President**: **Andrew Black**
 
-**Junior Vice-President**: Vacant
+**Secretary**: **Dr Stewart Gardiner FRPSL**
 
-**Secretary **: Dr Stewart Gardiner FRPSL
-
-**Treasurer**: Alan G. Blakeley
+**Treasurer**: **Alan G. Blakeley**
 
 **Exchange Packet Secretary**: Mrs Lyn Robinson
 
 **Delegate to Congress**: George Henshilwood
 
-**Public Relations Officer**: Sandy Kerr
+**Public Relations Officer**: Dr Stewart Gardiner FRPSL
 
 **Forgery Warden**: Dr. Stewart Gardiner FRPSL
 
@@ -28,12 +26,14 @@
 
 **Webmaster**: Dr David Stalker
 
-**Auctioneer**: Ken Norris, FRPSL
+**Auctioneer**: Robert Watt
 
 **Roll Keeper**: Elizabeth Nairn
 
 **Committee**:
 
-Maureen Matheson John Gavin
+**Ian Mason**: **John Gavin**
 
-**Examiners**: Elizabeth Nairn & Gordon Shepherd
+**Examiners**: George Henshilwood & Gordon Shepherd
+
+Note: Those in bold are automatically on committee.
