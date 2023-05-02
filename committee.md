@@ -8,7 +8,7 @@
 
 **President**: **Elizabeth Nairn**
 
-**Senior Vice-President**: **Andrew Black**
+**Vice-President**: **Andrew Black**
 
 **Secretary**: **Dr Stewart Gardiner FRPSL**
 
