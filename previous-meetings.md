@@ -2,63 +2,40 @@
 
 [Current Syllabus](./meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
-Syllabi for the last 10 years of meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022. 
+Syllabi for previous years meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022 and in 2023. 
 
 ## 2022 - 2023
 
 Date  | Subject | Member
 ----- | ------- | ------
-Oct 7	 | A surprise from our new President | Maureen Matheson
-Oct 14 |	Hotel Post Offices on the Nile | Richard Wheatley FRPSL
-Oct 21 | Early Development of USA Philately	| Maurice Buxton
-Oct 28 | Sir Hubert Wilkins (Australian Polar Explorer)	| Alan Godfrey FRPSL
-Nov 4	 | The Canal Zone	| Mike Ellison
-Nov 11 | Watermarks: from trademarks to modern security "John Dickinson and his Silk Thread Paper"	| Wendy Buckle FRPSL
-Nov 18 |	New Zealand Revenues	| Paul Woods
-Nov 25 | Early Canada	| Graham Searle
-Dec 2	 | Machins	| David Graham
-Dec 16 | 6 Sheeets from Members on a "Festive" theme	
-Jan 6	 | 8 - 10 sheets	Committee Entertains
-Jan 13 | Presidential Display	
-Jan 20 | Early Guernsey Postal History	| Julian Bagwell
-Jan 27 | First Scottish Registration Labels	| Terry Woods
-Feb 3	 | CYNICUS ( Martin Anderson) | Richard Smith
-Feb 10 | Valentines Through the Ages	| Dr Stewart Gardiner FRPSL
-Feb 17 | 6 - 8 sheets	Alphabet Lottery Part 1
-Feb 24 | The German Occupation of the Channel Islands	| ALan Whittaker
-Mar 3  | Statue of Liberty	| Jon Matthias
-Mar 10 | Visit from Lanarkshire Philatelic Society	
-Mar 17 | Postal History	| Lyn Robinson
-Mar 24 | Turkey	| Philip Longbottom FRPSL
-Mar 25 | Social Evening	Hilton Grosvenor Hotel
-Mar 31 | 6 - 8 sheets	Alphabet Lottery Part 2
-Apr 7  | Gilbert and Ellis Islands |	Robin Sherman
-Apr 14 | Rowland Hill, Genius and Benefactor | Alan Godfrey FRPSL
-Apr 28 | A G M
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Oct 6  | President's Night | Ian Mason
+Oct 13 | The People's War | Maurice Buxton FRPSL| ZOOM Meeting
+Oct 20 | The Rise of Flying Boats and the Emoire Air Mail Scheme | Sue Burn |ZOOM Meeting
+Oct 27 | Nifty needles| Maureen Matheson
+Nov 3  | Visit by Largs Philatelic Society |
+Nov 12  | Family Day at Kelvin Hall
+Nov 10 | Alphabet Lottery 
+Nov 17 | Bourse
+Nov 24 | Visit by Leeds Philatelic Society || ZOOM Meeting
+Dec 1  | The World of Revenues | Dr Stewart Gardiner FRPSL
+DeC 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
+Dec 15 | Christmas Evening
+Jan 5  | Committee Entertains 
+Jan 10 | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
+Jan 19 | Agathon Faberge - Potrait of a Philatelist| Dr Jefferey Stone FRPSL | ZOOM Meeting
+Jan 26 | New Members' Display
+Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Staps | Dr David Stalker
+Feb 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
+Feb 16 | Copmpetition Night
+Feb 23 | US States | George Henshilwood
+March 2  | Auction Night
+March 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
+March 16 | Visit by Lothian Philatelic Society
+March 23 | Faroe islands | Alistair Burrow
+March 29 | Social Evening | Glasgow Grosvenor Hotel
+March 30 | GB Royalty Visits Abroad | Colin Marshall
+April 14/15 | Annual Congress of ASPS | Dewar's Centre, Perth
+April 27 | A G M
 
 ## 2021 - 2022
 
