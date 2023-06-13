@@ -21,8 +21,6 @@ The summer meetings will be held in the rear hall of  Anniesland Temple Parish C
 
 Date  | Subject | Displayer | ZOOM Meetings
 
------ | ------- | --------- | -------------
-
 ## The syllabus for 2023 - 2024 will be added shortly. ##
 
 
