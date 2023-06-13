@@ -24,4 +24,4 @@ Date  | Subject | Displayer | ZOOM Meetings
 
 ## The styllabus for 2023 - 2024 will be added shortly. ##
 
-Meetings will be held in the rear hall of Temple Anniesland Parish Church; the address is 869 Crow Road G13 1LE but the rear hall is best accessed off Glencoe Street (which is the first right turn after Anniesland lights as you head to Bearsden). There is a car park at the Church and street parking on Glencoe Street (please leave the car park for those with walking difficulties). Alternatively, you can park in Morrison’s Car Park for up to 3 hours (so plenty of choice).
+
