@@ -19,8 +19,10 @@ The foramat is informal and will take the form of Show and Tell “ whatever you
 
 The summer meetings will be held in the rear hall of  Anniesland Temple Parish Church; the address is 869 Crow Road G13 1LE but the rear hall is best accessed off Glencoe Street (which is the first right turn after Anniesland lights as you head to Bearsden). There is a car park at the Church and street parking on Glencoe Street (please leave the car park for those with walking difficulties). Alternatively, you can park in Morrison’s Car Park for up to 3 hours (so plenty of choice)
 
+## The syllabus for 2023 - 2024 will be added shortly. ##
+
 Date  | Subject | Displayer | ZOOM Meetings
 
-## The syllabus for 2023 - 2024 will be added shortly. ##
+
 
 
