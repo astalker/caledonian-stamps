@@ -114,4 +114,4 @@ Date    | President
 2019-2020 | Dr David M Stalker |
 2020-2021 | Alistair Burrow |
 2021-2022 | Maureen Matheson|
-2021-2022 | Ian Mason|
+2022-2023 | Ian Mason|
