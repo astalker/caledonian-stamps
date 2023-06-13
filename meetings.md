@@ -5,10 +5,13 @@
 ## 2023 - 2024 ##
 ## SUMMER MEETINGS ## 
 
-Three summer meetings have been arranged for 
-3th July
-17th  August
-14th September 
+Three summer meetings have been arranged for:
+
+3th July 2023
+
+17th  August 2023
+
+14th September 2023
 
 Meetings will be held in Anniesland Temple Church – 1pm open for 1:30pm start
 
