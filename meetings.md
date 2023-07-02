@@ -7,7 +7,7 @@
 
 Three summer meetings have been arranged for:
 
-3th July 2023
+13th July 2023
 
 17th  August 2023
 
