@@ -4,7 +4,7 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 Congratulations to Dr Stewart Gardiner, who was awarded a Lee Medal by the Royal Philatelic Society of London for the best on-line ZOOM presentation entitled ‘Sealing and Securing the Letter’. The 2023 awards of the RPSL were presented at the Society’s Annual General Meeting on 29 June. 2023
 
-## ABPS Northern National Stamp Exhiobition July 2023
+## ABPS Northern National Stamp Exhibition July 2023
 
 The Stamp and Coin Fair at York Racecourse on 21st and 22nd July 2023 included several classes of competition. 3 members from the Caledonian Philatelic Society entered and gained awards as below: 
 
