@@ -2,42 +2,24 @@
 
 Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
 
-## ASPS Congress 2023
+Congratulations to Dr Stewart Gardiner, who was awarded a Lee Medal by the Royal Philatelic Society of London for the best on-line ZOOM presentation entitled ‘Sealing and Securing the Letter’. The 2023 awards of the RPSL were presented at the Society’s Annual General Meeting on 29 June. 2023
 
-The 92nd ASPS Congress was held in the Dewar Centre in Perth on 14-15 April 2023. A number of members entered the National Exhibitions as below:
+## ABPS Northern National Stamp Exhiobition July 2023
 
-#### Thematic Class
+The Stamp and Coin Fair at York Racecourse on 21st and 22nd July 2023 included several classes of competition. 3 members from the Caledonian Philatelic Society entered and gained awards as below: 
 
-George Henshilwood – NZ Health Stamps: A Thematic Approach to the Pre-Decimal Issues (1929 - 1966) – Gold Award (85)
-Ian Mason - The Alternative to Christmas - Silver (70)
+#### Postal History
 
-#### General Class Post 1900
+George Henshilwood – Use of Maps and Map Cachets in the Mail; 75 points; Vermeil
 
-Dr David Stalker – New Zealand: A Study of the 1967 – 1970 Pictorial Definitives Counter Coils – Gold Award and Winner of the Bridge Allan Trophy (93)
+#### Revenue
 
-#### General Class Pre- 1900
+Dr Stewart Gardiner -  GREAT BRITAIN MEDICINE TAX STAMPS. The implementation of the Congreve printing process for greater protection against forgery; 85 points; Gold
 
-Dr Stewart Gardiner - Tobago - An Island's Stamps in a Frame - Large silver Gilt (83)
-George Henshilwood – Two Key Canadian Map Stamps – Gold Award (87) and Winner of Ferris Trophy 
+#### Traditional
 
-#### Social Philately
-
-George Henshilwood – The Use of Maps and Map Cachets in the Mail – Large Silver Gilt (83)
-
-#### Picture Postcards
-
-Alexander Kerr - Helensburgh: Colquhoun Square - Large Silver Gilt (81) and winner of Scottish Postcard Trophy
-REv. J. Colin Caskie - Scottish National Exhibition Glasgow 1911 - Large Silver Gilt (80)
-
-#### Cinderella
-
-Dr Stewart Gardiner - Medicine Tax Duty Stamps - Gold (92) and winner of Jean Osborne Trophy and Dr Hirst Bowl for Best Presentation
-Alexander Kerr  - World Scouting - Small Silver Gilt (76)
-
-#### Literature Class
-
-Brian Dow - ALBA Stamp Group - Scottish Stamp News - The Journal of ALBA Stamp Group - Bronze Silver (68) and winner of Robson Lowe Salver.
-
+Dr David Stalker - New Zealand, A Study of the 1967 - 1970 Pictorial Definitives Counter Rolls; 78 points; Vermeil
+ 
 ## Access to meeting room 
 
 As in previous years, meetings are held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542.  
