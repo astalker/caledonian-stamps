@@ -5,7 +5,7 @@
 ## 2023 - 2024 ##
 
 
-Date  | Subject | Displayer | ZOOM Meetings
+Date  | Subject | Displayer | ZOOM Meetings|
 ----- | ------- | --------- |
 
 Oct 5  | President's Night | Elizabeth Nairn
