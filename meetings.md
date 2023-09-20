@@ -3,7 +3,7 @@
 [Previous Meetings](./previous-meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
 ## 2023 - 2024 ##
-
+----- | ------- | ------ |
 Date  | Subject | Displayer | ZOOM Meetings
 Oct 5  | President's Night | Elizabeth Nairn
 Oct 12 | Soldiers, Sailors & Spies and A Scottish Miscellany | Dr Norman Watson
