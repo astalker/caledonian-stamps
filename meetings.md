@@ -6,8 +6,7 @@
 
 
 Date  | Subject | Displayer | ZOOM Meetings|
------ | ------- | --------- |
-
+----- | ------- | --------- | -------------|
 Oct 5  | President's Night | Elizabeth Nairn
 Oct 12 | Soldiers, Sailors & Spies and A Scottish Miscellany | Dr Norman Watson
 Oct 19 | Graham Winters Entertains | Graham Winters FRPSL
@@ -29,7 +28,7 @@ Feb 6  | Joint Afternoon Meeting with Glasgow Philatelic Society: Canada Airmail
 Feb 15 | Joint Display by Gordon Gunnee & George McClintock
 Feb 22 | UJoint Dispolay by Jean Osborne & Paula Cleary
 Feb 29 | Auction Night
-March 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison 
+March 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison
 March 14 | Heligoland/Helgoland | Norman Hudson
 March 21 | Far flung Islands- Falkland Islands & Japan | Dr David Cumming
 March 28 |  A History of the USA | Alistair Burrow
