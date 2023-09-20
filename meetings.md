@@ -26,11 +26,11 @@ Jan 25 | Lyn & Jan Entertain
 Feb 1  | GB Letter Stamps: The Service & Then Stamps| Yvonne Wheatley FRPSL | ZOOM Meeting
 Feb 6  | Joint Afternoon Meeting with Glasgow Philatelic Society: Canada Airmails | Jim Bisset
 Feb 15 | Joint Display by Gordon Gunnee & George McClintock
-Feb 22 | UJoint Dispolay by Jean Osborne & Paula Cleary
+Feb 22 | Joint Display by Jean Osborne & Paula Cleary
 Feb 29 | Auction Night
 March 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison
 March 14 | Heligoland/Helgoland | Norman Hudson
-March 21 | Far flung Islands- Falkland Islands & Japan | Dr David Cumming
+March 21 | Far flung Islands - Falkland Islands & Japan | Dr David Cumming
 March 28 |  A History of the USA | Alistair Burrow
 April 12/13 | Annual Congress of ASPS | Dewar's Centre, Perth
 April 18 | A G M
