@@ -6,7 +6,7 @@ Congratulations to Dr Stewart Gardiner, who was awarded a Lee Medal by the Royal
 
 ## 2023 - 2024 Session
 
-The 2023 - 2024 session of the caledonian Philatelic Society is all set to start. The first meeting is on the 5th of October 2023 at the usual venue u=in Strathclyde University. This year we are basically back to normal actual meetings with only one ZOOM meeting scheduled (in January). Joint meetings with Glasow Philatelic Society were very popular last year and 5 more are planned for thie session.There is the usual mix of displays by members and visiting guests plus the usual Bourse, Auction and Social Evening. It promises to be an exciting session with a good mix of themes over the course of the year.
+The 2023 - 2024 session of the Caledonian Philatelic Society is all set to start. The first meeting is on the 5th of October 2023 at the usual venue in Strathclyde University. This year we are basically back to normal actual meetings with only one ZOOM meeting scheduled (in January). Joint meetings with Glasow Philatelic Society were very popular last year and 5 more are planned for thie session.There is the usual mix of displays by members and visiting guests plus the usual Bourse, Auction and Social Evening. It promises to be an exciting session with a good mix of themes over the course of the year.
 
 ## Access to meeting room 
 
