@@ -4,22 +4,10 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 Congratulations to Dr Stewart Gardiner, who was awarded a Lee Medal by the Royal Philatelic Society of London for the best on-line ZOOM presentation entitled ‘Sealing and Securing the Letter’. The 2023 awards of the RPSL were presented at the Society’s Annual General Meeting on 29 June. 2023
 
-## ABPS Northern National Stamp Exhibition July 2023
+## 2023 - 2024 Session
 
-The Stamp and Coin Fair at York Racecourse on 21st and 22nd July 2023 included several classes of competition. 3 members from the Caledonian Philatelic Society entered and gained awards as below: 
+The 2023 - 2024 session of the caledonian Philatelic Society is all set to start. The first meeting is on the 5th of October 2023 at the usual venue u=in Strathclyde University. This year we are basically back to normal actual meetings with only one ZOOM meeting scheduled (in January). Joint meetings with Glasow Philatelic Society were very popular last year and 5 more are planned for thie session.There is the usual mix of displays by members and visiting guests plus the usual Bourse, Auction and Social Evening. It promises to be an exciting session with a good mix of themes over the course of the year.
 
-#### Postal History
-
-George Henshilwood – Use of Maps and Map Cachets in the Mail; 75 points; Vermeil
-
-#### Revenue
-
-Dr Stewart Gardiner -  GREAT BRITAIN MEDICINE TAX STAMPS. The implementation of the Congreve printing process for greater protection against forgery; 85 points; Gold
-
-#### Traditional
-
-Dr David Stalker - New Zealand, A Study of the 1967 - 1970 Pictorial Definitives Counter Rolls; 78 points; Vermeil
- 
 ## Access to meeting room 
 
 As in previous years, meetings are held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542.  
