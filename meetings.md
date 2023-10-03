@@ -17,7 +17,7 @@ Nov 11 | Family Day at Kelvin Hall
 Nov 16 | Bourse
 Nov 23 | We Will Hope to Hear Tomorrow| Alex Walker
 Nov 30 | Temperance & Maritimes | Alan Blakeley
-Dec 7  | Forgery, Reprint, Fake, Bogus! | Dr Stewart Gardiner FRPSL
+Dec 5  | Joint Afternoon Meeting with Glasgow Philatelic Society:Forgery, Reprint, Fake, Bogus! | Dr Stewart Gardiner FRPSL
 Dec 14 | Christmas Evening
 Jan 4  | Malta: Postal Consequences of Political Decisions | Ian Mason | ZOOM Meeting
 Jan 9  | Joint Afternoon Meeting with Glasgow Philatelic Society | Displays by Members of Both Societies
