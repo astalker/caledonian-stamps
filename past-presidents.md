@@ -80,7 +80,7 @@ Date    | President
 1985-86 | W. H. Neithercut |
 1986-87 | Dr. D. Wooley |
 1987-88 | Miss J. Trew |
-1988-89 | W. SPALDING |
+1988-89 | W. Spalding |
 1989-90 | R. Walker |
 1990-91 | T. J.  Woods  |
 1991-92 | Dr. D. McCreadie |
