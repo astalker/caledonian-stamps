@@ -9,7 +9,7 @@ Date    | President
 1910-11 | John Muir |
 1911-12 | J. McDougall |
 1912-13 | A.G. Ingrid |
-1913-14 | D. O. SloaN |
+1913-14 | D. O. Sloan |
 1914-15 | C. S. Mackay |
 1915-16 | J. Reid |
 1916-18 | A.G. Wallis |
