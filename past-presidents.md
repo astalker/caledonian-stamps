@@ -77,7 +77,7 @@ Date    | President
 1982-83 | R. C. Welland |
 1983-84 | Dr. I. T Boyle |
 1984-85 | A. Forbes |
-1985-86 | W H. Neithercut |
+1985-86 | W. H. Neithercut |
 1986-87 | Dr. D. Wooley |
 1987-88 | Miss J. Trew |
 1988-89 | W. SPALDING |
@@ -92,14 +92,14 @@ Date    | President
 1997-98 | C. Moffat |
 1998-99 | R. Baldock |
 1999-00 | Dr. J. Cunningham |
-2000-01 | A. T. WISHART   |
+2000-01 | A. T. Wishart   |
 2001-02 | I. B. Hamilton |
 2002-03 | H. Gordon |
 2003-04 | Dr. M. Rennie |
 2004-05 | Mrs E. Nairn |
 2005-06 | Mrs Margaret Morris   |
 2006-07 | I. B. Hamilton |
-2007-08 |  Cplin Breddy |
+2007-08 | Colin Breddy |
 2008-09 | Michael Cooke |
 2009-10 | Dr. S. Gardiner|
 2010-11 | Stanley K. Hunter |
@@ -114,4 +114,4 @@ Date    | President
 2019-20 | Dr David M Stalker |
 202 -21 | Alistair S Burrow |
 2021-22 | Mrs. Maureen Matheson|
-2022-23 |J. N. C. Mason|
+2022-23 | J. N. C. Mason|
