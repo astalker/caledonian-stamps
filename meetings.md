@@ -5,8 +5,8 @@
 ## 2023 - 2024 ##
 
 
-Date  | Subject | Displayer | ZOOM Meetings|
------ | ------- | --------- | -------------|
+Date  | Subject | Displayer | ZOOM Meetings| Location|
+----- | ------- | --------- | -------------| -------- |
 Oct 5  | President's Night | Elizabeth Nairn | |University
 Oct 12 | Soldiers, Sailors & Spies and A Scottish Miscellany | Dr Norman Watson | |University
 Oct 19 | Graham Winters Entertains | Graham Winters FRPSL | |University
