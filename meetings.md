@@ -29,10 +29,10 @@ Feb 1  | GB Letter Stamps: The Service & Then Stamps| Yvonne Wheatley FRPSL | ZO
 Feb 6  | Joint Afternoon Meeting with Glasgow Philatelic Society: Canada Airmails | Jim Bisset |             | Temple
 Feb 15 | Joint Display by Gordon Gunnee & George McClintock |               |              |              |University
 Feb 22 | Joint Display by Jean Osborne & Paula Cleary |            |                 |Temple
-Feb 29 | Auction Night | |              |University
-March 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison|             | Temple
+Feb 29 | Auction Night |             |             |           | University
+FMarch 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison|             | Temple
 March 14 | Heligoland/Helgoland | Norman Hudson |               |University
-March 21 | Far flung Islands - Falkland Islands & Japan | Dr David Cumming              |              |              |Temple
+March 21 | Far flung Islands - Falkland Islands & Japan | Dr David Cumming |              |               |Temple
 March 28 |  A History of the USA | Alistair Burrow |               |University
 April 12/13 | Annual Congress of ASPS | Dewar's Centre, Perth
 April 18 | A G M | |              |University
