@@ -6,7 +6,6 @@
 
 Locations of meetings is indicated at right of tabe below. University meetings will be in room GH541 as described on Welcome page. Meetings at Temple Annieslad chaurch are located as described below table.
 
-
 Date  | Subject | Displayer | ZOOM Meetings| Location|
 ----- | ------- | --------- | -------------| -------- |
 Oct 5  | President's Night | Elizabeth Nairn |              |University
