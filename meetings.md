@@ -4,7 +4,7 @@
 
 ## 2023 - 2024 ##
 
-Locations of meetings are indicated at right of table below. University meetings will be in room GH542 as described on **Welcome** page. Meetings at Temple Annieslad chaurch are located as described below table.
+Locations of meetings are indicated at right of table below. University meetings will be in room GH542 as described on **Welcome** page. Meetings at Temple Anniesland Church are located as described below table.
 
 Date  | Subject | Displayer | ZOOM Meetings| Location|
 ----- | ------- | --------- | -------------| -------- |
