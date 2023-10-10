@@ -9,7 +9,7 @@ Date  | Subject | Displayer | ZOOM Meetings| Location|
 ----- | ------- | --------- | -------------| -------- |
 Oct 5  | President's Night | Elizabeth Nairn |              |University
 Oct 12 | Soldiers, Sailors & Spies and A Scottish Miscellany | Dr Norman Watson |               |University
-Oct 19 | Graham Winters Entertains | Graham Winters FRPSL |              |University
+Oct 19 | Graham Winters Entertains | Graham Winters FRPSL |              |Temple
 Oct 26 | Visit by Uddingston Stamp Group |              |              |              |University
 Nov 2  | New Zealand & Samoa QV Postal Fiscal Stamps and The Rarest Stamps in the World? | Paul Woods |              |University
 Nov 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | Displays by Members of Both Societies |             | Temple
@@ -28,11 +28,11 @@ Jan 25 | Lyn & Jan Entertain |                            |              |Univer
 Feb 1  | GB Letter Stamps: The Service & Then Stamps| Yvonne Wheatley FRPSL | ZOOM Meeting
 Feb 6  | Joint Afternoon Meeting with Glasgow Philatelic Society: Canada Airmails | Jim Bisset |             | Temple
 Feb 15 | Joint Display by Gordon Gunnee & George McClintock |               |              |              |University
-Feb 22 | Joint Display by Jean Osborne & Paula Cleary |            |                 |University
+Feb 22 | Joint Display by Jean Osborne & Paula Cleary |            |                 |Temple
 Feb 29 | Auction Night | |              |University
 March 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison|             | Temple
 March 14 | Heligoland/Helgoland | Norman Hudson |               |University
-March 21 | Far flung Islands - Falkland Islands & Japan | Dr David Cumming              |              |              |University
+March 21 | Far flung Islands - Falkland Islands & Japan | Dr David Cumming              |              |              |Temple
 March 28 |  A History of the USA | Alistair Burrow |               |University
 April 12/13 | Annual Congress of ASPS | Dewar's Centre, Perth
 April 18 | A G M | |              |University
