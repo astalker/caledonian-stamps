@@ -10,7 +10,7 @@ Date  | Subject | Displayer | ZOOM Meetings| Location|
 Oct 5  | President's Night | Elizabeth Nairn |              |University
 Oct 12 | Soldiers, Sailors & Spies and A Scottish Miscellany | Dr Norman Watson |               |University
 Oct 19 | Graham Winters Entertains | Graham Winters FRPSL |              |Temple
-Oct 26 | Visit by Uddingston Stamp Group |              |              |University
+Oct 26 | Visit by Uddingston Stamp Group |              |                 |                |University
 Nov 2  | New Zealand & Samoa QV Postal Fiscal Stamps and The Rarest Stamps in the World? | Paul Woods |              |University
 Nov 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | Displays by Members of Both Societies |             | Temple
 Nov 11 | Family Day at Kelvin Hall
