@@ -28,7 +28,7 @@ Jan 25 | Lyn & Jan Entertain | Jyn & Jan van den Baard|             |Temple
 Feb 1  | GB Letter Stamps: The Service & Then Stamps| Yvonne Wheatley FRPSL | ZOOM Meeting
 Feb 6  | Joint Afternoon Meeting with Glasgow Philatelic Society: Canada Airmails | Jim Bisset |             | Temple
 Feb 15 | Joint Display by Gordon Gunnee & George McClintock |               |             |University
-Feb 22 | Joint Display by Jean Osborne & Paula Cleary |                |Temple
+Feb 22 | Joint Display by Jean Osborne & Paula Cleary |                |               |Temple
 Feb 29 | Auction Night |             |             | University
 March 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison|             | Temple
 March 14 | Heligoland/Helgoland | Norman Hudson |               |University
