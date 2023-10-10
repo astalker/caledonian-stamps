@@ -35,6 +35,6 @@ March 28 |  A History of the USA | Alistair Burrow |               |University
 April 12/13 | Annual Congress of ASPS | Dewar's Centre, Perth
 April 18 | A G M | |              |University
 
-Joint meetings with Glasgow Philatelic Soiciety will  be held in Anniesland Temple Church – 1pm open for 1:30pm startb in the rear hall: the address is 869 Crow Road G13 1LE but the rear hall is best accessed off Glencoe Street (which is the first right turn after Anniesland lights as you head to Bearsden). There is a car park at the Church and street parking on Glencoe Street (please leave the car park for those with walking difficulties). Alternatively, you can park in Morrison’s Car Park for up to 3 hours (so plenty of choice)
+Joint meetings with Glasgow Philatelic Soiciety will  be held in Anniesland **Temple Church** – 1pm open for 1:30pm startb in the rear hall: the address is 869 Crow Road G13 1LE but the rear hall is best accessed off Glencoe Street (which is the first right turn after Anniesland lights as you head to Bearsden). There is a car park at the Church and street parking on Glencoe Street (please leave the car park for those with walking difficulties). Alternatively, you can park in Morrison’s Car Park for up to 3 hours (so plenty of choice)
 
 
