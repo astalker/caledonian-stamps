@@ -16,8 +16,6 @@ Nov 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | Displays by M
 Nov 11 | Family Day at Kelvin Hall
 Nov 16 | Bourse |              |                 |University
 Nov 23 | We Will Hope to Hear Tomorrow| Alex Walker |              |University
-Nov 16 | Bourse |              |             |University
-Nov 23 | We Will Hope to Hear Tomorrow| Alex Walker |              |University
 Nov 30 | Temperance & Maritimes | Alan Blakeley |              |University
 Dec 5  | Joint Afternoon Meeting with Glasgow Philatelic Society:Forgery, Reprint, Fake, Bogus! | Dr Stewart Gardiner FRPSL|            | Temple
 Dec 14 | Christmas Evening |             |             | Temple
