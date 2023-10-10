@@ -14,23 +14,23 @@ Oct 26 | Visit by Uddingston Stamp Group |              |                 |     
 Nov 2  | New Zealand & Samoa QV Postal Fiscal Stamps and The Rarest Stamps in the World? | Paul Woods |              |University
 Nov 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | Displays by Members of Both Societies |             | Temple
 Nov 11 | Family Day at Kelvin Hall
-Nov 16 | Bourse |              |               |                |University
+Nov 16 | Bourse |              |                 |University
 Nov 23 | We Will Hope to Hear Tomorrow| Alex Walker |              |University
-Nov 16 | Bourse |              |               |              |University
+Nov 16 | Bourse |              |             |University
 Nov 23 | We Will Hope to Hear Tomorrow| Alex Walker |              |University
 Nov 30 | Temperance & Maritimes | Alan Blakeley |              |University
 Dec 5  | Joint Afternoon Meeting with Glasgow Philatelic Society:Forgery, Reprint, Fake, Bogus! | Dr Stewart Gardiner FRPSL||             | Temple
 Dec 14 | Christmas Evening |             |             | Temple
 Jan 4  | Malta: Postal Consequences of Political Decisions | Ian Mason | ZOOM Meeting
 Jan 9  | Joint Afternoon Meeting with Glasgow Philatelic Society | Displays by Members of Both Societies|             | Temple
-Jan 18 | Alphabet Lottery |                             |              |University
-Jan 25 | Lyn & Jan Entertain |                            |              |University
+Jan 18 | Alphabet Lottery |              |             | University
+Jan 25 | Lyn & Jan Entertain | Jyn & Jan van den Baard|             |             |Temple
 Feb 1  | GB Letter Stamps: The Service & Then Stamps| Yvonne Wheatley FRPSL | ZOOM Meeting
 Feb 6  | Joint Afternoon Meeting with Glasgow Philatelic Society: Canada Airmails | Jim Bisset |             | Temple
 Feb 15 | Joint Display by Gordon Gunnee & George McClintock |               |              |              |University
 Feb 22 | Joint Display by Jean Osborne & Paula Cleary |            |                 |Temple
-Feb 29 | Auction Night |             |             |           | University
-FMarch 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison|             | Temple
+Feb 29 | Auction Night |             |             | University
+March 5  | Joint Afternoon Meeting with Glasgow Philatelic Society: Postal History of Czechoslovakia | Kenny Morrison|             | Temple
 March 14 | Heligoland/Helgoland | Norman Hudson |               |University
 March 21 | Far flung Islands - Falkland Islands & Japan | Dr David Cumming |              |               |Temple
 March 28 |  A History of the USA | Alistair Burrow |               |University
