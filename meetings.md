@@ -23,7 +23,7 @@ Dec 14 | Christmas Evening |             |             | Temple
 Jan 4  | Malta: Postal Consequences of Political Decisions | Ian Mason | ZOOM Meeting
 Jan 9  | Joint Afternoon Meeting with Glasgow Philatelic Society | Displays by Members of Both Societies|             | Temple
 Jan 18 | Alphabet Lottery |              |             | University
-Jan 25 | Lyn & Jan Entertain | Lyn Robertson & Jan van den Baard|             |Temple
+Jan 25 | Lyn & Jan Entertain | Lyn Robinson & Jan van den Baard|             |Temple
 Feb 1  | GB Letter Stamps: The Service & Then Stamps| Yvonne Wheatley FRPSL | ZOOM Meeting
 Feb 6  | Joint Afternoon Meeting with Glasgow Philatelic Society: Canada Airmails | Jim Bisset |             | Temple
 Feb 15 | Joint Display by Gordon Gunnee & George McClintock |               |             |University
