@@ -33,17 +33,25 @@ How to pay your subscripion
 (1) By online transfer in sterling to the Society’s account:
 
 Account name: THe Caledonian Philatelic Society
+
 Sort Code: 82-48-08
+
 Account number: 30558446
+
 The sender is responsible for any bank charges involved.
+
 Please quote your iniitial and surname as reference so we can idenify payments.
 
 (2) By cheque in sterling sent to the treasurer. 
 
 A. G. Blakeley
+
 7 Albany Drive
+
 Rutherglen
+
 Glasgow
+
 G733QN
 
 (3) If none of the above is suitable, please contact the Secretary for advice.
