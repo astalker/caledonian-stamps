@@ -16,7 +16,7 @@ The syllabus is made up of a blended mixture of face-to-face meetings and ZOOM m
 
 Full details and other detail of events and news about the hobby of stamp collecting in Scotland can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
 
-## 2022 - 2023
+## 2023 - 2024
 
 The Caledonian Philatelic Society (formed in 1906) exists to promote interest in and encourage the growth of philately and the fellowship that arises from it.
 
