@@ -24,9 +24,33 @@ Meetings are held in Strathclyde University in the Graham Hills Building, Room G
 
 Members enjoy talks, members' evenings on different themes, visits from other philatelic societies, annual competitions and an annual social evening, for which a souvenir card is created.
 
+## Membership
+
+The current annual subscription is &pound;15 (an out of town subscription is also available).
+
+How to pay your subscripion
+
+(1) By online transfer in sterling to the Society’s account:
+
+Account name: THe Caledonian Philatelic Society
+Sort Code: 82-48-08
+Account number: 30558446
+The sender is responsible for any bank charges involved.
+Please quote your iniitial and surname as reference so we can idenify payments.
+
+(2) By cheque in sterling sent to the treasurer. 
+
+A. G. Blakeley
+7 Albany Drive
+Rutherglen
+Glasgow
+G733QN
+
+(3) If none of the above is suitable, please contact the Secretary for advice.
+
 ## Visitors
 
-Visitors will receive a warm welcome, however regular visitors are encouraged to join the Society, the current annual subscription is &pound;15 (an out of town subscription is also available).
+Visitors will receive a warm welcome, however regular visitors are encouraged to join the Societ.
 
 Membership benefits include access to the Caledonian Philatelic Society exchange packet circuit, impartial philatelic advice should you or your family wish to dispose of a collection and a personal email account @caledonianphilatelic.org.uk, subject to availability. Contact the webmaster with your proposed email name if you wish to take up this offer.
 
