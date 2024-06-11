@@ -8,27 +8,26 @@ Syllabi for previous years meetings at the Caledonian Philatelic Society are sho
 
 Date  | Subject | Member
 ----- | ------- | ------
-
-Oct 5  | President's Night | Elizabet Nairn
+Oct 5  | President's Night | Elizabeth Nairn
 Oct 12 | Soldiers, Sailors & Spies and A Scottich Miscellany | DR Norman Watson 
-Oct 19 | Graham Winters Entertains | Graham Winters
-
-Oct 27 | Nifty needles| Maureen Matheson
-Nov 3  | Visit by Largs Philatelic Society |
-Nov 12  | Family Day at Kelvin Hall
-Nov 10 | Alphabet Lottery 
-Nov 17 | Bourse
-Nov 24 | Visit by Leeds Philatelic Society || ZOOM Meeting
-Dec 1  | The World of Revenues | Dr Stewart Gardiner FRPSL
-DeC 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
-Dec 15 | Christmas Evening
-Jan 5  | Committee Entertains 
-Jan 10 | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
-Jan 19 | Agathon Faberge - Potrait of a Philatelist| Dr Jefferey Stone FRPSL | ZOOM Meeting
-Jan 26 | New Members' Display
-Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Staps | Dr David Stalker
+Oct 19 | Graham Winters Entertains | Graham Winters FRPSL
+Oct 26 |Visit by Uddingston Stamp Group
+Nov 2  | NZ & Samoa QV Postal Fiscal Stamps and the Rarest Stamps in the World | Paul Woodss
+Nov 7 ! Displays by Members of Both Societies ! Joint Meeting with Glasgow Philatelic Society
+Nov 11 | Family Day at Kelvin Hall
+Nov 16 | Bourse 
+Nov 16 | WE Will Hope to Hear Tomorrow ! Alex Walker
+Nov 30 | Temperance and Maritimes ! Alan blakeley
+Dec 5 | Forgery. Reprint, Fake and Bogus | Dr Stewart Gardiner FRPSL ! Joint Meeting with Glasgow Philatelic Society
+DeC 14  |Christmas Evening
+Jan 4  | Malta: Postal Consequences of Political Decisions ! Ian Mason ! ZOOM Meeting 
+Jan 9 | Displays by Members of Both Societies ! Joint Meeting with Glasgow Philatelic Society
+Jan 18 | Alphabet Lottery
+Jan 25 ! Lynn and Jan Entertain
+Feb 1  | GB Railway Letter Stamps- The Services and the Stamps ! Yvonne Wheatley FRPSL ! ZOOM Meeting
 Feb 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
-Feb 16 | Copmpetition Night
+Feb 6 | Canada Airmails ! Jim Bissett ! Joint Meeting with Glasgow Philatelic Socie
+
 Feb 23 | US States | George Henshilwood
 March 2  | Auction Night
 March 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
