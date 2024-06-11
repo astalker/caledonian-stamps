@@ -4,6 +4,41 @@
 
 Syllabi for previous years meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022 and in 2023. 
 
+## 2023 - 2024
+
+Date  | Subject | Member
+----- | ------- | ------
+
+Oct 5  | President's Night | Elizabet Nairn
+Oct 12 | Soldiers, Sailors & Spies and A Scottich Miscellany | DR Norman Watson 
+Oct 19 | Graham Winters Entertains | Graham Winters
+
+Oct 27 | Nifty needles| Maureen Matheson
+Nov 3  | Visit by Largs Philatelic Society |
+Nov 12  | Family Day at Kelvin Hall
+Nov 10 | Alphabet Lottery 
+Nov 17 | Bourse
+Nov 24 | Visit by Leeds Philatelic Society || ZOOM Meeting
+Dec 1  | The World of Revenues | Dr Stewart Gardiner FRPSL
+DeC 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
+Dec 15 | Christmas Evening
+Jan 5  | Committee Entertains 
+Jan 10 | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
+Jan 19 | Agathon Faberge - Potrait of a Philatelist| Dr Jefferey Stone FRPSL | ZOOM Meeting
+Jan 26 | New Members' Display
+Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Staps | Dr David Stalker
+Feb 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
+Feb 16 | Copmpetition Night
+Feb 23 | US States | George Henshilwood
+March 2  | Auction Night
+March 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
+March 16 | Visit by Lothian Philatelic Society
+March 23 | Faroe islands | Alistair Burrow
+March 29 | Social Evening | Glasgow Grosvenor Hotel
+March 30 | GB Royalty Visits Abroad | Colin Marshall
+April 14/15 | Annual Congress of ASPS | Dewar's Centre, Perth
+April 27 | A G M
+
 ## 2022 - 2023
 
 Date  | Subject | Member
