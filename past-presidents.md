@@ -115,3 +115,4 @@ Date    | President
 202 -21 | Alistair S Burrow |
 2021-22 | Mrs. Maureen Matheson|
 2022-23 | J. N. C. Mason|
+2023-24| Mrs E. Nairn |
