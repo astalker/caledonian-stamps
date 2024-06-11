@@ -6,9 +6,9 @@
 
  Mrs. M. Morris, DTP, FRPSL
 
-**President**: **Elizabeth Nairn**
+**President**: **Andrew Black*
 
-**Vice-President**: **Andrew Black**
+**Vice-President**: **Gerorge Henshilwood*
 
 **Secretary**: **Dr Stewart Gardiner FRPSL**
 
@@ -32,7 +32,7 @@
 
 **Committee**:
 
-**Ian Mason**: **John Gavin**
+**Ian Mason**: **Elizabeth Nairn**
 
 **Examiners**: George Henshilwood & Gordon Shepherd
 
