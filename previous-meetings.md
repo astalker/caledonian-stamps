@@ -2,41 +2,39 @@
 
 [Current Syllabus](./meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
-Syllabi for previous years meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022 and in 2023. 
+Syllabi for a number of previous years meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022 and in 2023. In  2023 - 2024 only 2 meetings were on ZOOM with presenters from "Down South". A nmuber of meetings were held jointly with Glasgow Philatelic Society. A number of meetings were also held in the afternoon at Temple, Anniesland Church.
 
 ## 2023 - 2024
 
-Date  | Subject | Member
------ | ------- | ------
+Date  | Subject | Member | Joint meetings
+----- | ------- | ------ | --------------
 Oct 5  | President's Night | Elizabeth Nairn
-Oct 12 | Soldiers, Sailors & Spies and A Scottich Miscellany | DR Norman Watson 
+Oct 12 | Soldiers, Sailors & Spies and A Scottish Miscellany | Dr Norman Watson 
 Oct 19 | Graham Winters Entertains | Graham Winters FRPSL
 Oct 26 |Visit by Uddingston Stamp Group
-Nov 2  | NZ & Samoa QV Postal Fiscal Stamps and the Rarest Stamps in the World | Paul Woodss
-Nov 7 ! Displays by Members of Both Societies ! Joint Meeting with Glasgow Philatelic Society
+Nov 2  | NZ & Samoa QV Postal Fiscal Stamps and the Rarest Stamps in the World | Paul Woods
+Nov 7 | Displays by Members of Both Societies || Joint Meeting with Glasgow Philatelic Society
 Nov 11 | Family Day at Kelvin Hall
 Nov 16 | Bourse 
-Nov 16 | WE Will Hope to Hear Tomorrow ! Alex Walker
-Nov 30 | Temperance and Maritimes ! Alan blakeley
-Dec 5 | Forgery. Reprint, Fake and Bogus | Dr Stewart Gardiner FRPSL ! Joint Meeting with Glasgow Philatelic Society
-DeC 14  |Christmas Evening
-Jan 4  | Malta: Postal Consequences of Political Decisions ! Ian Mason ! ZOOM Meeting 
-Jan 9 | Displays by Members of Both Societies ! Joint Meeting with Glasgow Philatelic Society
+Nov 16 | We Will Hope to Hear Tomorrow ! Alex Walker
+Nov 30 | Temperance and Maritimes | Alan blakeley
+Dec 5 | Forgery. Reprint, Fake and Bogus | Dr Stewart Gardiner FRPSL | Joint Meeting with Glasgow Philatelic Society
+Dec 14  |Christmas Evening
+Jan 4  | Malta: Postal Consequences of Political Decisions | Ian Mason
+Jan 9 | Displays by Members of Both Societies | Joint Meeting with Glasgow Philatelic Society
 Jan 18 | Alphabet Lottery
-Jan 25 ! Lynn and Jan Entertain
-Feb 1  | GB Railway Letter Stamps- The Services and the Stamps ! Yvonne Wheatley FRPSL ! ZOOM Meeting
-Feb 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
-Feb 6 | Canada Airmails ! Jim Bissett ! Joint Meeting with Glasgow Philatelic Socie
-
-Feb 23 | US States | George Henshilwood
-March 2  | Auction Night
-March 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
-March 16 | Visit by Lothian Philatelic Society
-March 23 | Faroe islands | Alistair Burrow
-March 29 | Social Evening | Glasgow Grosvenor Hotel
-March 30 | GB Royalty Visits Abroad | Colin Marshall
-April 14/15 | Annual Congress of ASPS | Dewar's Centre, Perth
-April 27 | A G M
+Jan 25 | Lynn and Jan Entertain | Lyn Robertson & Jan van den Baard
+Feb 1  | GB Railway Letter Stamps - The Services and the Stamps | Yvonne Wheatley FRPSL
+Feb 6 | Canada Airmails | Jim Bissett | Joint Meeting with Glasgow Philatelic Society
+Feb 15| Joint Display | Gordon Gunnee & George McClitock 
+Feb 22 | Joint Display | Jean Osborne & Paula Cleary
+Feb 29 | Auction Night
+March 5  | Postal History of Czechoslovakia | Kenny Morrison | Joint Meeting with Glasgow Philatelic Society
+March 14 | Heligoland/Helgoland | Norman Hudson
+March 21 | Far Flung Islands - Falkland islands  and Japan | David Cumming
+March 28 | A History of the USA | Alistair Burrow
+April 12/13 | Annual Congress of ASPS | Dewar's Centre, Perth
+April 18 | A G M
 
 ## 2022 - 2023
 
