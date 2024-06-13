@@ -21,7 +21,7 @@ Nov 30 | Temperance and Maritimes | Alan blakeley
 Dec 5 | Forgery. Reprint, Fake and Bogus | Dr Stewart Gardiner FRPSL | Joint Meeting with Glasgow Philatelic Society
 Dec 14  |Christmas Evening
 Jan 4  | Malta: Postal Consequences of Political Decisions | Ian Mason
-Jan 9 | Displays by Members of Both Societies | Joint Meeting with Glasgow Philatelic Society
+Jan 9 | Displays by Members of Both Societies || Joint Meeting with Glasgow Philatelic Society
 Jan 18 | Alphabet Lottery
 Jan 25 | Lynn and Jan Entertain | Lyn Robertson & Jan van den Baard
 Feb 1  | GB Railway Letter Stamps - The Services and the Stamps | Yvonne Wheatley FRPSL
