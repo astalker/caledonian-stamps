@@ -2,7 +2,19 @@
 
 Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
 
-Congratulations to Dr Stewart Gardiner, who was awarded a Lee Medal by the Royal Philatelic Society of London for the best on-line ZOOM presentation entitled ‘Sealing and Securing the Letter’. The 2023 awards of the RPSL were presented at the Society’s Annual General Meeting on 29 June. 2023
+Congratulations go to George Henshilwood of the Caledonian Philatelic Society who was awarded the following trophies at the annual ASPS Competions at Congress on 12/13th April 2024 in Perth:
+
+**Thematic Class** - George Henshilwood - Gold and winner of Sottish Thematic Rosebowl for "**Proud to be ....**"
+
+**Postal History Class** - George Henshilwood - Large Silver Gilt and winner of Glasgow 800 Cup for "**The British Post Office in the Danish West Indies**"
+
+**Picture Postcards** - George Henshilwood - Large Silver Gilt and winner of Scottish Postcard Trophy for "**Life in the Danish West Indies in the Early Twentieth Century**". This entry was also awarded the Dr Hirst Bowl as the **Best Presentation**.
+
+**General Class Pre - 1900** - George Henshilwood - Large Silver Gilt and winner of Bridge of Allan Trophy for "**The Stamps - Postage, Postage Dues and Revenue of the Danish West Indies**"
+ 
+## ASPS Congress 2025 - Change of Venue
+
+Please take note that the ASPS Congress in 2025 will be held in the **VINE CONFERENCE CENTRE, 131 GARVOCK HILL, DUNFERMLINE, KY11 4JU** on **4th and 5th April 2025**. 
 
 ## 2023 - 2024 Session
 
