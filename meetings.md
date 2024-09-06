@@ -35,7 +35,7 @@ Date  | Subject | Displayer | Location | Joint Meetings |
 20 March | Syria 1920 - 1950 |Jan van den Baard | **U** 
 25 March | George V Commonwealth | Kenny Morrison |**P** | Joint Meeting with Glasgow PS
 4/5 April | ASPS Annual Congress |||Vine Centre Dunfermline
-10 April |AGM and 3rd Reich Postal Stationery | **U**
+10 April |AGM and 3rd Reich Postal Stationery | | **U**
 
 Joint meetings with Glasgow Philatelic Society will be held in Partick Burgh Hall's Main Hall Room 1 - to left after entering the Halls. Doors will be open at 1pm for a 1:30pm start. 
 
