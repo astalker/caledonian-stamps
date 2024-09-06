@@ -6,7 +6,7 @@
 
 Locations of meetings are indicated at right of table below. University meetings will be in the Graham Hills Building room GH542 as described on **HOME** page. Meetings at Partick Burgh Halls are as described below the table.
 
-Prior to the Session 2024 - 2025 commencing there will be 3 **Summer Meetings** on **18th July**, **22nd August** and **19th September**. All will be afternoon meetings at **Temple Anniesland Chuch at 1pm**. See below for directions. Thereafter joint meetings and afternoon meetings with be held in Partick Burgh Halls. Meeings in Strathclyde University are designated **U** in the tablr below, and those in Partick Burgh Halls as **P**.
+Prior to the Session 2024 - 2025 commencing there will be 3 **Summer Meetings** on **18th July**, **22nd August** and **19th September**. All will be afternoon meetings at **Temple Anniesland Chuch at 1pm**. See below for directions. Thereafter joint meetings and afternoon meetings with be held in Partick Burgh Halls. Meeings in Strathclyde University are designated **U** in the table below, and those in Partick Burgh Halls as **P**.
 
 Date  | Subject | Displayer | Location | Joint Meetings |
 ---- | ------- | --------- | -------- | --------------  |
@@ -28,13 +28,13 @@ Date  | Subject | Displayer | Location | Joint Meetings |
 21 January | The late Ian Evans | Presented by Andrew Black | **P**
 30 January | Germania | Dr Stewart Gardiner FRPSL | **P** | **Note this is an afternoon meeting**
 9 February | Butterflies/Perth Postcards | Maureen Matheson | **U**
-13 February | Competitions (Caledonian PS Meeting) | **P**
+13 February | Competitions (Caledonian PS Meeting) || **P**
 20 February | Something American | George Henshilwood | **U**
 27 February | Auction night | | **U**
 6 March | World War I /Iraq | Gary Cheyne |**U**
 20 March | Syria 1920 - 1950 |Jan van den Baard | **U** 
 25 March | George V Commonwealth | Kenny Morrison |**P** | Joint **eeting with Glasgow PS
-4/5 April | ASPS Annual Congress || Vine Centre Dunfermline
+4/5 April | ASPS Annual Congress |||Vine Centre Dunfermline
 10 April |AGM and 3rd Reich Postal Stationery | **U**
 
 Joint meetings with Glasgow Philatelic Society will be held in Partick Burgh Hall's Main Hall Room 1 - to left after entering the Halls. Doors will be open at 1pm for a 1:30pm start. 
