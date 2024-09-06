@@ -39,6 +39,6 @@ Date  | Subject | Displayer | Location | Joint Meetings |
 
 Location of Joint Meetings and afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm
 
-Note that car parking is limited. There is easy access from both Partick Undrerground Staion and the Partick Main Line Station - with only a short walking distance to the hall. There are also a number of frequent busses along Dumbarton Road from Glasgow City Centre.
+Note that car parking is limited. There is easy access from both Partick Underground Staion and the Partick Main Line Station - with only a short walking distance to the hall. There are also a number of frequent busses along Dumbarton Road from Glasgow City Centre.
 
 
