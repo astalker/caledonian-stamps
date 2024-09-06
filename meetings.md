@@ -33,7 +33,7 @@ Date  | Subject | Displayer | Location | Joint Meetings |
 27 February | Auction night | | **U**
 6 March | World War I /Iraq | Gary Cheyne |**U**
 20 March | Syria 1920 - 1950 |Jan van den Baard | **U** 
-25 March | George V Commonwealth | Kenny Morrison |**P** | Joint **eeting with Glasgow PS
+25 March | George V Commonwealth | Kenny Morrison |**P** | Joint Meeting with Glasgow PS
 4/5 April | ASPS Annual Congress |||Vine Centre Dunfermline
 10 April |AGM and 3rd Reich Postal Stationery | **U**
 
