@@ -9,8 +9,9 @@ Locations of meetings are indicated at right of table below. University meetings
 Prior to the Session 2024 - 2025 commencing there will be 3 **Summer Meetings** on **18th July**, **22nd August** and **19th September**. All will be afternoon meetings at **Temple Anniesland Chuch at 1pm**. See below for directions.
 
 Date  | Subject | Displayer | Location | Joint Meetings |
- |3 October | President's Night | | **U** 
-10 October | Canada | Graham SEarle | **P** 
+---- | ------- | --------- | -------- | --------------  |
+3 October | President's Night| | **U** 
+10 October | Canada | Graham Searle | **P** 
 15 October | Brian Dow | Postal History of Perthshire| **P** 
 24 October | The Boys' Brigade | Alistair Burrow | **U** 
 31 October | Masps | Lyn Robinson |**U**
