@@ -25,7 +25,7 @@ Date  | Subject | Displayer | Location | Joint Meetings |
 17 December | Christmas Meeting | | **P** | Joint Meeting with Glasgow PS
 9 January | What's the Story Jackanory | Russell Walker | **U**
 16 January | Alphabet Lottery | | **U**
-21 January | The late Ian Evans | Presented by Andrew Black | **P**
+21 January | The late Dr Ian Evans | Presented by Andrew Black | **P**
 30 January | Germania | Dr Stewart Gardiner FRPSL | **P** | **Note this is an afternoon meeting**
 9 February | Butterflies/Perth Postcards | Maureen Matheson | **U**
 13 February | Competitions (Caledonian PS Meeting) || **P**
