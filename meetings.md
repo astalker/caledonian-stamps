@@ -37,10 +37,8 @@ Date  | Subject | Displayer | Location | Joint Meetings |
 4/5 April | ASPS Annual Congress |||Vine Centre Dunfermline
 10 April |AGM and 3rd Reich Postal Stationery | | **U**
 
-Joint meetings with Glasgow Philatelic Society will be held in Partick Burgh Hall's Main Hall Room 1 - to left after entering the Halls. Doors will be open at 1pm for a 1:30pm start. 
+Location of Joint Meetings annd afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm
 
-Access is from Burgh Hall Street.
-
-Note that car parking is limited. There is easy access from both Partick Undrerground Staion and the Partick Main Line Staion - with only a short walk distance to the hall. There are also a number of frequent busses along Dumbarton Road from Glasgow City Centre.
+Note that car parking is limited. There is easy access from both Partick Undrerground Staion and the Partick Main Line Station - with only a short walking distance to the hall. There are also a number of frequent busses along Dumbarton Road from Glasgow City Centre.
 
 
