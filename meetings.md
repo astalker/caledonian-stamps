@@ -11,29 +11,29 @@ Joint meetings and afternoon meetings with be held in Partick Burgh Halls. Meein
 Date  | Subject | Displayer | Location | Joint Meetings |
 ---- | ------- | --------- | -------- | --------------  |
 3 October | President's Night| | **U** 
-10 October | Canada | Graham Searle | **P** 
-15 October | Postal History of Perthshire | Brian Dow | **P** 
+10 October | Canada | Graham Searle | **P** | **Note this is an afternoon meeting**
+15 October | Postal History of Perthshire | Brian Dow | **P** | **Note this is an afternoon meeting**
 24 October | The Boys' Brigade | Alistair Burrow | **U** 
 31 October | Maps | Lyn Robinson |**U**
 7 Novemb er | Revenues | Francis Podger | **U**
 9 November | Kelvin Kall Family Day
-12 November | U.S. National Parks/Sarawak| Alan Blakeley| **P** 
+12 November | U.S. National Parks/Sarawak| Alan Blakeley| **P** | **Note this is an afternoon meeting**
 21 November |Bourse | | **U**
-26 November |Argentina Re-visited | Dr David Cumming | **P** |Joint meeting with Glasgow PS
+26 November |Argentina Re-visited | Dr David Cumming | **P** |Joint meeting with Glasgow PS| **Note this is an afternoon meeting**
 5 December | New Zealand Christmas Stamps | Dr David Stalker | **U**
 12 December | Zanzibar/Gold Coast | Robert Watt |**U** | **Note change of Room to GH713**
-17 December | Christmas Meeting | | **P** | Joint Meeting with Glasgow PS
+17 December | Christmas Meeting | | **P** | Joint Meeting with Glasgow PS | **Note this is an afternoon meeting**
 9 January | What's the Story Jackanory | Russell Walker | **U**
 16 January | Alphabet Lottery | | **U**
-21 January | The late Dr Ian Evans | Presented by Andrew Black | **P**
+21 January | The late Dr Ian Evans | Presented by Andrew Black | **P** | **Note this is an afternoon meeting**
 30 January | Germania | Dr Stewart Gardiner FRPSL | **P** | **Note this is an afternoon meeting**
 9 February | Butterflies/Perth Postcards | Maureen Matheson | **U**
-13 February | Competitions (Caledonian PS Meeting) || **P**
+13 February | Competitions (Caledonian PS Meeting) || **P** | **Note this is an afternoon meeting**
 20 February | Something American | George Henshilwood | **U**
 27 February | Auction night | | **U**
 6 March | World War I /Iraq | Gary Cheyne |**U**
 20 March | Syria 1920 - 1950 |Jan van den Baard | **U** 
-25 March | George V Commonwealth | Kenny Morrison |**P** | Joint Meeting with Glasgow PS
+25 March | George V Commonwealth | Kenny Morrison |**P** | Joint Meeting with Glasgow PS | **Note this is an afternoon meeting**
 4/5 April | ASPS Annual Congress |||Vine Centre Dunfermline
 10 April |AGM and 3rd Reich Postal Stationery | | **U**
 
