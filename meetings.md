@@ -8,7 +8,7 @@ Locations of meetings are indicated at right of table below. University meetings
 
 Joint meetings and afternoon meetings with be held in Partick Burgh Halls. Meeings in Strathclyde University are designated **U** in the table below, and those in Partick Burgh Halls as **P**.
 
-Date  | Subject | Displayer | Location | Joint Meetings |
+Date  | Subject | Displayer | Location | Joint Meetings/afternoon Meetings |
 ---- | ------- | --------- | -------- | --------------  |
 3 October | President's Night| | **U** 
 10 October | Canada | Graham Searle | **P** | **Note this is an afternoon meeting**
