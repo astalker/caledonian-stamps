@@ -6,7 +6,7 @@
 
 Locations of meetings are indicated at right of table below. University meetings will be in the Graham Hills Building room GH542 as described on **HOME** page. Meetings at Partick Burgh Halls are as described below the table.
 
-Prior to the Session 2024 - 2025 commencing there will be 3 **Summer Meetings** on **18th July**, **22nd August** and **19th September**. All will be afternoon meetings at **Temple Anniesland Chuch at 1pm**. See below for directions. Thereafter joint meetings and afternoon meetings with be held in Partick Burgh Halls. Meeings in Strathclyde University are designated **U** in the table below, and those in Partick Burgh Halls as **P**.
+Joint meetings and afternoon meetings with be held in Partick Burgh Halls. Meeings in Strathclyde University are designated **U** in the table below, and those in Partick Burgh Halls as **P**.
 
 Date  | Subject | Displayer | Location | Joint Meetings |
 ---- | ------- | --------- | -------- | --------------  |
