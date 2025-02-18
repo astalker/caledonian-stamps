@@ -2,13 +2,11 @@
 
 View [Previous Competitions](./previous-competitions)
 
+## Changes to the Competitioons ##
+
 ## 2024 - 2025 ##
 
-The Caledonian Philatelic Society runs a number of philatelic competitions to encourage members to develop research and upgrade the presentation of their collections. The competitions are geared towards both the new and also the experienced philatelist. It is an ideal opportunity for the less experienced collector to gain initial experience of what is required for competition and exhibiting.
-
-Competitions are held on an annual basis. For each trophy a list of the winners is shown. Where there are missing years there were no entrants.
-
-Many of the club's more eminent philatelists have gone on to win prizes at National and International level - club competition was their starting point. In addition to comments from the judge, fellow members will be pleased to provide advice, tips and encouragement. The rules of the various competitions are outlined below or can be obtained from the Secretary.
+The Committee has discussed what approach we should take to make the competitions more suited to our current situation and proposed that we should reduce the number of competitions to four: ## Postage Stamps of All Periods ##, ## Postal History and Aerophilately ##, ## Thematic and Open Classes ## and ## Postcards and Cinderella ## to be judged by members at the meeting and that the appropriate existing trophy is awarded to the winning entries.  In addition, members would be able to request that their entry be marked by a qualified judge in anticipation of submitting it to the Scottish Congress. The President’s Cup and the Caledonian Rose Bowl will also be awarded.Changes to the form of Society competitions
 
 ### Competition Rules
 The following trophies are awarded to the winners of the Society's annual competitions. The entries for these competitions are judged by two ABPS accredited judges, who are not members of the Society. Entries are judged before the Competition night and feedback is provided to the entrants on that night. The criteria for each completion class is based on those of the Association of Scottish Philatelic Societies (ASPS) and more detail and extracts from ASPS rules and guidance on the requirements is shown under each trophy description.
