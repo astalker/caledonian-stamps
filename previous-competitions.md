@@ -163,14 +163,14 @@ Year | Winner
 1995 | D. P. Robinson
 1996 | T. J. Woods
 1997 | D. P. Robinson
-1998 | C. y. Reid
+1998 | C. Y. Reid
 1999 | S. N. Gardiner
 2000 | A. D. MacCalman
 2001 | T. J. Woods
 2002 | T. J. Woods
 2003 | I. L. Evans
 2004 | I. M. Dyce
-2005 | j. Morgan
+2005 | J. Morgan
 2006 | I. L. Evans
 2007 | I. L. Evans
 2008 | W. Colley
