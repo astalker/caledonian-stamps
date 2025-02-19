@@ -23,10 +23,12 @@ Talk on second round | 8.30-8.45 | 2.10 - 2.25
 Viewing second round | 8.45-9.15 | 2.25 - 2.45
 Vote of thanks/close | 9.15 | 2.45
 
-Sheets from the first round can be taken down and replaced by the sheets for the second round at about 8.25 or 2.10 as appropriate. Members will provide assistance with taking sheets down if required.
+Sheets from the first round can be taken down and replaced by the sheets for the second round at about 8.25 or 2.00 as appropriate. Members will provide assistance with taking sheets down if required.
 
 
 ## Room Layout
+
+Room layout for Partick Burgh Hall is basically the same but orientation may vary. 12 boards are used at each venue.
 
 ![Room Layout](images/room-layout.png)
 ## Directions
