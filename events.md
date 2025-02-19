@@ -21,7 +21,7 @@ Much needed funds for the Society were raised at the evening from a silent aucti
 
 A souvenir postcard would be produced for each year – the card from the first Social Evening in 1986 is shown below.
 
-The Social Evening was not held in 2020, 2021 or 2022 due to the restrictions imposed by the COVID-19 pandemic.
+The Social Evening was not held in 2020, 2021 or 2022 due to the restrictions imposed by the COVID-19 pandemic.Falling numbers and fears of meetings in closed spaces plus more unwillingness to travel at night has meant that the Social Evenings have ceased. THese dificulties have had a knock on effect on meeting attendances as well. With an aging demographic this problem will only persist and increase.
 
 ### 1986 Social Evening Souvenir Cover
 
