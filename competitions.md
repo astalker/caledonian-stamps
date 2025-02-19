@@ -10,25 +10,25 @@ The Committee has discussed what approach we should take to make the competition
 
 For 2025 the Competition winners as voted for by the members present were as follows:
 
-## Jean M Campbell Trophy
+## Jean M Campbell Trophy for Postal History and Aerophilately
 
 Year | Winner
 ---- | ------
 2025 | G.Henshilwood
 
-## Frank Brown Rose Bowl
+## Frank Brown Rose Bowl for Postage Stamps of all Periods
 
 Year | Winner
 ---- | ------
 2025 | A Duda
 
-## Merrylees Trophy 
+## Merrylees Trophy for Thematic and Open Classes
 
 Year | Winner
 ---- | ------
 2025 | A Burrow
 
-## Fairbairn Salver
+## Fairbairn Salver for Postcards and Cinderellas
 
 Year | Winner
 ---- | ------
