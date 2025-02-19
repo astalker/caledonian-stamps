@@ -8,22 +8,22 @@ Meetings are held in Room GH542 in the Graham Hills Building, Strathclyde Univer
 
 Our meeting room is quite large and we provide a microphone and speaker system to ensure that speakers can be heard. We recommend that speakers put up their sheets and then speak about them from the front of the room, if possible.
 
-### Meeting timetable
+### Meeting timetable for Evening  and Afternoon/Joint Meetings
 
-(Approximate)
+(Approximate suggested times)
 
-Agenda Item  | Time
------ | -------
-Meeting opens | 7.30 pm
-Society Business | 7.30-7.40
-Talk on first round | 7.40-7.55
-Viewing first round | 7.55-8.25
-Tea served | 8.10
-Talk on second round | 8.30-8.45
-Viewing second round | 8.45-9.15
-Vote of thanks/close | 9.15
+Agenda Item  | Time | Time
+----- | -------  | --------
+Meeting opens | 7.30 pm | 1.30 pm
+Society Business | 7.30-7.40 | 1.30 - 1.35
+Talk on first round | 7.40-7.55 | 1.35 - 1.50
+Viewing first round | 7.55-8.25 | 1.50 - 2.10 
+Tea served | 8.10 | 1.50
+Talk on second round | 8.30-8.45 | 2.10 - 2.25
+Viewing second round | 8.45-9.15 | 2.25 - 2.45
+Vote of thanks/close | 9.15 | 2.45
 
-Sheets from the first round can be taken down and replaced by the sheets for the second round at about 8.25. Members will provide assistance with taking sheets down if required.
+Sheets from the first round can be taken down and replaced by the sheets for the second round at about 8.25 or 2.10 as appropriate. Members will provide assistance with taking sheets down if required.
 
 
 ## Room Layout
