@@ -2,39 +2,19 @@
 
 Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
 
-Congratulations go to George Henshilwood of the Caledonian Philatelic Society who was awarded the following trophies at the annual ASPS Competions at Congress on 12/13th April 2024 in Perth:
-
-**Thematic Class** - George Henshilwood - Gold and winner of Sottish Thematic Rosebowl for "**Proud to be ....**"
-
-**Postal History Class** - George Henshilwood - Large Silver Gilt and winner of Glasgow 800 Cup for "**The British Post Office in the Danish West Indies**"
-
-**Picture Postcards** - George Henshilwood - Large Silver Gilt and winner of Scottish Postcard Trophy for "**Life in the Danish West Indies in the Early Twentieth Century**". This entry was also awarded the Dr Hirst Bowl as the **Best Presentation**.
-
-**General Class Pre - 1900** - George Henshilwood - Large Silver Gilt and winner of Bridge of Allan Trophy for "**The Stamps - Postage, Postage Dues and Revenue of the Danish West Indies**"
- 
 ## ASPS Congress 2025 - Change of Venue
 
 Please take note that the ASPS Congress in 2025 will be held in the **VINE CONFERENCE CENTRE, 131 GARVOCK HILL, DUNFERMLINE, KY11 4JU** on **4th and 5th April 2025**. 
 
-## 2023 - 2024 Session
+## 2024 - 2025 Session
 
-The 2023 - 2024 session of the Caledonian Philatelic Society is all set to start. The first meeting is on the 5th of October 2023 at the usual venue in Strathclyde University. This year we are basically back to normal actual meetings with only one ZOOM meeting scheduled (in January). Joint meetings with Glasow Philatelic Society were very popular last year and 5 more are planned for thie session.There is the usual mix of displays by members and visiting guests plus the usual Bourse, Auction and Social Evening. It promises to be an exciting session with a good mix of themes over the course of the year.
+This year we are basically back to normal actual meetings. Joint meetings with Glasow Philatelic Society were very popular last year as were afternoon meetings and 8 more joint meetings and three afternoon meetings are planned for thie session. Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction - see Meetings page for full details.
 
-## Access to meeting room 
+## Access to meeting room at Strathclyde University
 
-As in previous years, meetings are held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542.  
-
-The syllabus is made up of a blended mixture of face-to-face meetings and ZOOM meetings - see Meetings Page for details.
+As in previous years, evening meetings are held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542.  
 
 Full details and other detail of events and news about the hobby of stamp collecting in Scotland can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
-
-## 2023 - 2024
-
-The Caledonian Philatelic Society (formed in 1906) exists to promote interest in and encourage the growth of philately and the fellowship that arises from it.
-
-Meetings are held in Strathclyde University in the Graham Hills Building, Room GH542 at 7.30pm.
-
-Members enjoy talks, members' evenings on different themes, visits from other philatelic societies, annual competitions and an annual social evening, for which a souvenir card is created.
 
 ## Membership
 
