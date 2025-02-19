@@ -26,11 +26,11 @@ Year | Winner
 
 Year | Winner
 ---- | ------
-2023 | A Burrow
+2025 | A Burrow
 
-Fairbairn Salver
+## Fairbairn Salver
 
 Year | Winner
 ---- | ------
-2023 | M Matheson
+2025 | M Matheson
 
