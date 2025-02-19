@@ -14,6 +14,6 @@ The two thousand-five hundredth meeting of the Society was held on 13 October 20
 
 There is also an Advisory Committee to give advice to the relatives of deceased members or members in failing health about selling their philatelic properties.
 
-Until the advent of the COVID 19 Pandemic and the shut down restriction there was an annual Social Evening, for which a souvenir card was created, and where the Society’s annual competition winners were awarded their trophies. Falling numbers and fears of meeting in closed spaces plus more unwillingness to travel at night has meant that the Social Evenings have ceased. tHese dificulties have had a knock on effect on meeting attendances as well. With an aging demographic this problem will only persist and increase.
+Until the advent of the COVID 19 Pandemic and the shut down restriction sthere was an annual Social Evening, for which a souvenir card was created, and where the Society’s annual competition winners were awarded their trophies. Falling numbers and fears of meeting in closed spaces plus more unwillingness to travel at night has meant that the Social Evenings have ceased. tHese dificulties have had a knock on effect on meeting attendances as well. With an aging demographic this problem will only persist and increase.
 
 New members are very welcome and the current annual subscription is £15, with the option to enrol on an ‘out of town’ membership rate if you live away from Glasgow. For details, or to join, contact Dr Stewart Gardiner by e-mail: secretary@caledonianphilatelicsociety.org.uk
