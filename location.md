@@ -12,4 +12,8 @@ After parking your car use the door on the south side, furthest from the vehicle
 
 If you are coming on foot then the main entrance to the building on George Street is open at 19.00. To reach our meeting room: turn left after entering through the main doors, go through a set of wooden swing doors, up a few steps to a lobby where there are four lifts. Take a lift to level 5 and on exiting the lift turn right from the lobby, through the swing doors and GH542 is right across the corridor.
 
-# Location of Afternoon and Join Meetings in Partick Burgh Hall
+# Location of Afternoon and Joint Meetings with Glasgow PS in Partick Burgh Hall
+
+Location of Joint Meetings and afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm
+
+Note that car parking is limited and is metered. There is easy access from both Partick Underground Staion and the Partick Main Line Station - with only a short walking distance to the hall. There are also a number of frequent busses along Dumbarton Road from Glasgow City Centre.
