@@ -10,7 +10,7 @@ Please take note that the ASPS Congress in 2025 will be held in the **VINE CONFE
 
 Subject to ratification at each Philatelic Society's AGM, it is proposed that the two above mentioned, long established, Glasgow based Philatelic Societies will merge to form the  **Glasgow Caledonian Philatelic Society**.
 
-The card below, designed by Andrew Black, the current President of the Caledonoan Philatelic Society (CPS), will be given out to thiose members attending the CPS AGM. It provides some historical background on the CPS. The final full meeting - meeting number 2708 - will be held on Thursdat 20th March 2025. Thus ending 120 years as the Caledonian Philatelic Society. - 
+The card below, designed by Andrew Black, the current President of the Caledonoan Philatelic Society (CPS), will be given out to those members attending the CPS AGM. It provides some historical background on the CPS. The final full meeting - meeting number 2708 - will be held on Thursdat 20th March 2025. Thus ending 120 years as the Caledonian Philatelic Society. - 
 
 ## 2024 - 2025 Session
 
