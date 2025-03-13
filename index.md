@@ -6,6 +6,12 @@ Welcome to the Caledonian Philatelic Society promoting stamp collecting and phil
 
 Please take note that the ASPS Congress in 2025 will be held in the **VINE CONFERENCE CENTRE, 131 GARVOCK HILL, DUNFERMLINE, KY11 4JU** on **4th and 5th April 2025**. 
 
+## Merger of Caledonian Philatelic Society and Glasgow Philatelic Society
+
+Subject to ratification at each Philatelic Society's AGM, it is proposed that the two above mentioned, long established, Glasgow based Philatelic Societies will merge to form the  **Glasgow Caledonian Philatelic Society**.
+
+The card below, designed by Andrew Black, the current President of the Caledonoan Philatelic Society (CPS), will be given out to thiose members attending the CPS AGM. It provides some historical background on the CPS. The final full meeting - meeting number 2708 - will be held on Thursdat 20th March 2025. Thus ending 120 years as the Caledonian Philatelic Society. - 
+
 ## 2024 - 2025 Session
 
 This year we are basically back to normal actual meetings. Joint meetings with Glasow Philatelic Society were very popular last year as were afternoon meetings and 8 more joint meetings and three afternoon meetings are planned for thie session. Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction - see Meetings page for full details.
