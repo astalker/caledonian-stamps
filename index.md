@@ -10,7 +10,11 @@ Please take note that the ASPS Congress in 2025 will be held in the **VINE CONFE
 
 Subject to ratification at each Philatelic Society's AGM, it is proposed that the two above mentioned, long established, Glasgow based Philatelic Societies will merge to form the  **Glasgow Caledonian Philatelic Society**.
 
-The card below, designed by Andrew Black, the current President of the Caledonoan Philatelic Society (CPS), will be given out to those members attending the CPS AGM. It provides some historical background on the CPS. The final full meeting - meeting number 2708 - will be held on Thursday 20th March 2025. The Society was originally called the **Junior Philatelic Society of Scotland**  but changed name to the **Caledonian Philatelic Society** in 1930. Now, after a further 95 years, we will be changing name again. 
+The card below, designed by Andrew Black, the current President of the Caledonoan Philatelic Society (CPS), will be given out to those members attending the CPS AGM. It provides some historical background on the CPS. The final full meeting - meeting number 2708 - will be held on Thursday 20th March 2025. The Society was originally called the **Junior Philatelic Society of Scotland**  but changed name to the **Caledonian Philatelic Society** in 1930. Now, after a further 95 years, we will be changing name again.
+
+<img src="images/caley-last-meeting.jpeg" alt="Caledonian Philatelic Society Card logo" style="border:1px solid black" />
+
+<img src="images/caley-last-meeting-2.jpeg" alt="Caledonian Philatelic Society Card text" style="border:1px solid black" />
 
 ## 2024 - 2025 Session
 
