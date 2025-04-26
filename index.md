@@ -4,13 +4,13 @@ Welcome to the **Glasgow Caledonian Philatelic Society** promoting stamp collect
 
 At the 2025 AGMs of both Glasgow and Caledonian Philatelic Societies the merger to form **Glasgow Caledonian Phiatelic Society** was unanimously agreed. 
 
-The first meeting, on 10th April 2025, of the new society, held immediately after the Caledonian PS AGM was used to elect the Office Beaers and Committee of the new Society and these are shown in the Committee page.
+The first meeting, on 10th April 2025, of the new society, held immediately after the Caledonian PS AGM, was used to elect the Office Beaers and Committee of the new Society and they are shown in the Committee page.
 
-## ASPS Congress 2025 - Change of Venue
+## ASPS Congress 2025
 
 The ASPS Congress for 2025 was held in the **VINE CONFERENCE CENTRE, 131 GARVOCK HILL, DUNFERMLINE, KY11 4JU** on **4th and 5th April 2025**. 
 
-It was generally agreed that the venue was a success and the venue has been booked for 2026. Congratulations are due to the following members of the Glasgow Philatelic Society who won trophies in the National Exhibition.
+It was generally agreed that the venue was a success and the venue has been booked for 2026. Congratulations are due to the following members of the  Glasgow Caledonian Philatelic Society who won trophies in the National Exhibition.
 
 **Traditional Non-GB Post- 1900** and **Bridge of Allan Trophy**
 
