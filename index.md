@@ -24,7 +24,7 @@ Dr Brian Dow for ***Norwegian Airmail & Priority Labels 1926 - 2019*** - Small S
 
 Dr Brian Dow for P***erthshire Local Undated Handstamps*** - Small Silver Gilt Medal
 
-** Traditional Non-GB Pre-1900 ** and **Ferris Trophy** 
+**Traditional Non-GB Pre-1900 ** and **Ferris Trophy** 
 
 Dr Stewart Gardiner for ***French "Connaissements" - "Bills of Lading" Revenues and their usage*** - Silver Medal
 
