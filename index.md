@@ -1,34 +1,69 @@
 # Welcome
 
-Welcome to the Caledonian Philatelic Society promoting stamp collecting and philately in the Glasgow area since 1906.
+Welcome to the **Glasgow Caledonian Philatelic Society** promoting stamp collecting and philately in the Glasgow area since 1906.
+
+At the 2025 AGMs of both Glasgow and Caledonian Philatelic Societies the merger to form **Glasgow Caledonian Phiatelic Society** was unanimously agreed. 
+
+The first meeting, on 10th April 2025, of the new society, held immediately after the Caledonian PS AGM was used to elect the Office Beaers and Committee of the new Society and these are shown in the Committee page.
 
 ## ASPS Congress 2025 - Change of Venue
 
-Please take note that the ASPS Congress in 2025 will be held in the **VINE CONFERENCE CENTRE, 131 GARVOCK HILL, DUNFERMLINE, KY11 4JU** on **4th and 5th April 2025**. 
+The ASPS Congress for 2025 was held in the **VINE CONFERENCE CENTRE, 131 GARVOCK HILL, DUNFERMLINE, KY11 4JU** on **4th and 5th April 2025**. 
 
-## Merger of Caledonian Philatelic Society and Glasgow Philatelic Society
+It was generally agreed that the venue was a success and the venue has been booked for 2026. Congratulations are due to the following members of the Glasgow Philatelic Society who won trophies in the National Exhibition.
 
-Subject to ratification at each Philatelic Society's AGM, it is proposed that the two above mentioned, long established, Glasgow based Philatelic Societies will merge to form the  **Glasgow Caledonian Philatelic Society**.
+**Traditional Non-GB Post- 1900** and **Bridge of Allan Trophy**
 
-The card below, designed by Andrew Black, the current President of the Caledonoan Philatelic Society (CPS), will be given out to those members attending the CPS AGM. It provides some historical background on the CPS. The final full meeting - meeting number 2708 - will be held on Thursday 20th March 2025. The Society was originally called the **Junior Philatelic Society of Scotland**  but changed name to the **Caledonian Philatelic Society** in 1930. Now, after a further 95 years, we will be changing name again.
+Dr David Stalker for ***The 1960 Christmas Stamp of New Zealand*** - Gold Medal 
 
-<img src="images/caley-last-meeting.jpeg" alt="Caledonian Philatelic Society Card logo" style="border:1px solid black" />
+**Aerophilatelic Class** and **Aerophilatelic Shield**
 
-<img src="images/caley-last-meeting-2.jpeg" alt="Caledonian Philatelic Society Card text" style="border:1px solid black" />
+Dr Brian Dow for ***Norwegian Airmail & Priority Labels 1926 - 2019*** - Small Silver Gilt Medal
 
-## 2024 - 2025 Session
+**Scottish Postal History** and **Bruce Auckland Centennial Quaich**.
 
-This year we are basically back to normal actual meetings. Joint meetings with Glasow Philatelic Society were very popular last year as were afternoon meetings and 8 more joint meetings and three afternoon meetings are planned for thie session. Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction - see Meetings page for full details.
+Dr Brian Dow for P***erthshire Local Undated Handstamps*** - Small Silver Gilt Medal
+
+** Traditional Non-GB Pre-1900 ** and **Ferris Trophy** 
+
+Dr Stewart Gardiner for ***French "Connaissements" - "Bills of Lading" Revenues and their usage*** - Silver Medal
+
+**Picture Postcards** and ** Scottish Postcard Trophy**
+
+Alexander Kerr for ***Criagendoran*** - Large silver Gilt Medal
+
+**Literature Class** and **Robson Lowe Salver**
+
+Dr Brian Dow and Robert Watt for ***Ayrshire Post Offices and Postmarks 1661 - 2023: Part II Postmarks*** - Gold medal
+
+**Best First Time Entrant** and **Cowell Salver**
+
+Alistair Burrow for ***The "Invention" of Leisure Camping holidays*** - Silver Medal.
+
+
+## 2025 - 2026 Session
+
+It was agreed in the merger that 2 of the meetings each month would be in the afternoon and they would be held in **Partick Burgh Halls** on **Thursdays** as detailed below. Meetings on alternate Thursdays wil still be held in Strathclyde University as detailed below. Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction - the Meetings page will be updated when details of the syllabus have been finalised.
 
 ## Access to meeting room at Strathclyde University
 
-As in previous years, evening meetings are held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542.  
+As in previous years, evening meetings are held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the Location Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542. 
 
 ## Access to Joint and Afternoon meetings at Partick Burgh Hall
 
 Location of Joint Meetings and afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm
 
 Note that car parking is limited. and is metered. There is easy access from both Partick Underground Staion and the Partick Main Line Station - with only a short walking distance to the hall. There are also a number of frequent busses along Dumbarton Road from Glasgow City Centre.
+
+
+Card below, designed by Andrew Black, the current President of the Caledonoan Philatelic Society (CPS), will be given out to those members attending the CPS AGM. It provides some historical background on the CPS. The final full meeting - meeting number 2708 - will be held on Thursday 20th March 2025. The Society was originally called the **Junior Philatelic Society of Scotland**  but changed name to the **Caledonian Philatelic Society** in 1930. Now, after a further 95 years, we will be changing name again.
+
+<img src="images/caley-last-meeting.jpeg" alt="Caledonian Philatelic Society Card logo" style="border:1px solid black" />
+
+<img src="images/caley-last-meeting-2.jpeg" alt="Caledonian Philatelic Society Card text" style="border:1px solid black" />
+
+
+
 Full details and other detail of events and news about the hobby of stamp collecting in Scotland can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
 
 ## Membership
