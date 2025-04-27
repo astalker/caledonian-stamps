@@ -10,7 +10,7 @@ Locations of meetings are indicated at right of table below. University meetings
 
 Afternoon meetings with be held in Partick Burgh Halls. Meeings in Strathclyde University are designated **U** in the table below, and those in Partick Burgh Halls as **P**.
 
-Date  | Subject | Displayer | Location | Joint Meetings/afternoon Meetings |
+Date  | Subject | Displayer | Location | Afternoon Meetings |
 ---- | ------- | --------- | -------- | --------------  |
 2 October | President's Night| | **U** 
 
