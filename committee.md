@@ -1,4 +1,4 @@
-# Committee and Office Bearers
+## Committee and Office Bearers of Glasgow Caledonian Philatelic Society ##
 
 **Hon. President**: Mr W. Colley, FRPSL
 
@@ -6,9 +6,9 @@
 
  Mrs. M. Morris, DTP, FRPSL
 
-**President**: **Andrew Black**
+**President**: **George Henshilwood**
 
-**Vice-President**: **Gerorge Henshilwood**
+**Vice-President**: **Anthony Duda**
 
 **Secretary**: **Dr Stewart Gardiner FRPSL**
 
@@ -30,10 +30,10 @@
 
 **Roll Keeper**: Elizabeth Nairn
 
-**Committee**:
-
-**Ian Mason**: **Elizabeth Nairn** **Paula Cleary**
+**Committee**: Andrew Black: Alexander Kerr, Gordon Carroll
 
 **Examiners**: Elizabeth Nairn & Gordon Shepherd
+
+**Advisory Committee** George Henshilwood, Dr Stewart Gardiner FRPSL, Alan Blakeley
 
 Note: Those in bold are automatically on committee.
