@@ -34,7 +34,7 @@ Year | Winner
 ---- | ------
 2025 | M Matheson
 
-##aledonian Rosebowl##
+## Caledonian Rosebowl
 
 Year | Winner
 ---- | ------
