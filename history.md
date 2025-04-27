@@ -47,7 +47,7 @@ The covers produced, along with the inserts, are shown on the [Congress Covers p
 
 ## The Final Meeting of Caledonian Philatelic Society
 
-The last and fianl meeting of the Caledonian Philatelic Socieyty prior to the merger with glasgow Philatelic Society took place on Tuesday 25th March 2025. 
+The last and fianl meeting - meeting number 2707 - of the Caledonian Philatelic Socieyty prior to the merger with glasgow Philatelic Society took place on Tuesday 25th March 2025.
 
 [back to top](#history)
 
