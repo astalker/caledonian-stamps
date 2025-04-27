@@ -2,7 +2,39 @@
 
 [Current Syllabus](./meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
 
-Syllabi for a number of previous years meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022 and in 2023. In  **2023 - 2024** only 2 meetings were on ZOOM with presenters from "Down South". A nmuber of meetings were held jointly with Glasgow Philatelic Society. A number of meetings were also held in the afternoon at Temple, Anniesland Church.
+Syllabi for a number of previous years meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society had in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022 and in 2023. In  **2023 - 2024** only 2 meetings were on ZOOM with presenters from "Down South". A nmuber of meetings were held jointly with Glasgow Philatelic Society. A number of meetings were also held in the afternoon at Temple, Anniesland Church. In **2024 - 2025** there weere no ZOOM meetings and a number of afternoon meetings in Partick Burgh Halls, most of them being joint meetings with Glasgow Philatelic Society.
+
+## 2024 - 2025
+
+Date  | Subject | Member | Joint meetings
+----- | ------- | ------ | --------------
+Oct 3  | President's Night | Andrew Black
+Oct 10 | Canada | Graham Searle 
+Oct 15 | Postal History of Perthshire| Dr Brian Dow
+Oct 24 | The Boys' Brigade | Alistair Burrow
+Oct 31 | Maps | Lyn Robinson
+Nov 7 | Revenues | Francis Podger
+Nov 9 | Family Day at Kelvin Hall
+Nov 12 | U.S. National Parks/ Sarawak | Alan Blakeley
+Nov 21 | Bourse 
+Nov 26 | Argentana Revisited | Dr David Cumming
+Dec 5 | New Zealand Christmas Stamps | Dr David Stalker
+Dec 12 | Zanzibar/ Gold Coast | Robert Watt
+Dec 17 | Christmas Meeting
+Jan 9 | "What's the Story Jackanory" | Russell Walker
+Jan 16 | Alphabet Lottery
+Jan 21 | "The Late Ian Evans"  Presented by Andrew Black
+Jan 30 | Germania | Dr Stewart Gardiner FRPSL
+Feb 6 | Butterflies/ Perth Postcards | Maureen Matheson
+Feb 13| Competitions 
+Feb 20 | Something American | George Henshilwood
+Feb 27 | Auction Night
+March 6  | World War I/ Iraq | Gary Cheyne 
+March 11 | Classic Columbian | Anthony Duda
+March 20 | Syria 1920 - 1950 | Jan van den Baard
+March 25 | George V Commonwealth | Kenny Morrison
+April 4/5 | Annual Congress of ASPS | Vine Conference Centre, Dunfermline
+April 10 | A G M
 
 ## 2023 - 2024
 
