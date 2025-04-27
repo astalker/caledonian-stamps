@@ -55,15 +55,6 @@ Location of Joint Meetings and afternoon meetings is **Room 1, Partick Burgh Hal
 
 Note that car parking is limited. and is metered. There is easy access from both Partick Underground Staion and the Partick Main Line Station - with only a short walking distance to the hall. There are also a number of frequent busses along Dumbarton Road from Glasgow City Centre.
 
-
-Card below, designed by Andrew Black, the current President of the Caledonoan Philatelic Society (CPS), will be given out to those members attending the CPS AGM. It provides some historical background on the CPS. The final full meeting - meeting number 2708 - will be held on Thursday 20th March 2025. The Society was originally called the **Junior Philatelic Society of Scotland**  but changed name to the **Caledonian Philatelic Society** in 1930. Now, after a further 95 years, we will be changing name again.
-
-<img src="images/caley-last-meeting.jpeg" alt="Caledonian Philatelic Society Card logo" style="border:1px solid black" />
-
-<img src="images/caley-last-meeting-2.jpeg" alt="Caledonian Philatelic Society Card text" style="border:1px solid black" />
-
-
-
 Full details and other detail of events and news about the hobby of stamp collecting in Scotland can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
 
 ## Membership
