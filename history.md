@@ -3,7 +3,7 @@
 1. [Centennial](#centennial)
 1. [Hosting ASPS Annual Congress](#hosting-asps-annual-congress)
 1. [2500th Meeting](#2500th-meeting)
-1. [110th Anniversary](#110th-anniversary)
+1. [Final Meeting](#The Final Meeting of Caledonian Philatelic Society)
 1. [Philatelic Congress of Great Britain](#philatelic-congress-of-great-britain)
 1. [Royal Philatelic Society of Great Britain Visit 2006](#royal-philatelic-society-of-great-britain-visit-2006)
 1. [75th Anniversary](#75th-anniversary)
@@ -45,9 +45,9 @@ The covers produced, along with the inserts, are shown on the [Congress Covers p
 
 [back to top](#history)
 
-## 2500th Meeting
+## The Final Meeting of Caledonian Philatelic Society
 
-Content still to come.
+The last and fianl meeting of the Caledonian Philatelic Socieyty prior to the merger with glasgow Philatelic Society took place on Tuesday 25th March 2025. 
 
 [back to top](#history)
 
