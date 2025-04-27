@@ -47,7 +47,13 @@ The covers produced, along with the inserts, are shown on the [Congress Covers p
 
 ## The Final Meeting of Caledonian Philatelic Society
 
-The last and fianl meeting - meeting number 2707 - of the Caledonian Philatelic Socieyty prior to the merger with glasgow Philatelic Society took place on Tuesday 25th March 2025.
+The last and fianl meeting - meeting number 2707 - of the Caledonian Philatelic Socieyty prior to the merger with Glasgow Philatelic Society took place on Tuesday 25th March 2025.
+
+To commemorate the final meeting the card below, designed by Andrew Black, the President of the Caledonoan Philatelic Society (CPS), was given out to those members attending the meeting. It provides some historical background on the CPS. The final full meeting - meeting number 2707 - was held on Thursday 20th March 2025. The Society was originally called the **Junior Philatelic Society of Scotland**  but changed name to the **Caledonian Philatelic Society** in 1930. Now, after a further 95 years, the Society is changing name again.
+
+<img src="images/caley-last-meeting.jpeg" alt="Caledonian Philatelic Society Card logo" style="border:1px solid black" />
+
+<img src="images/caley-last-meeting-2.jpeg" alt="Caledonian Philatelic Society Card text" style="border:1px solid black" />
 
 [back to top](#history)
 
