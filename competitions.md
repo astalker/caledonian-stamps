@@ -34,3 +34,8 @@ Year | Winner
 ---- | ------
 2025 | M Matheson
 
+##aledonian Rosebowl##
+
+Year | Winner
+---- | ------
+2025 | Dr Brian Dow
