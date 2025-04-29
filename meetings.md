@@ -1,6 +1,8 @@
-# Current Syllabus
+# Meetings
 
 [Previous Meetings](./previous-meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
+
+# Current Syllabus
 
 ## 2025 - 2026 ##
 
