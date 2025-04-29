@@ -1,6 +1,6 @@
 # Competitions
 
-View [Previous Competitions](previous-competitions.md)
+[Previous Competitions](previous-competitions.md)
 
 ## 2024 - 2025 Changes to the Competitions
 
