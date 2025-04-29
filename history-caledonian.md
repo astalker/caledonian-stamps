@@ -1,6 +1,6 @@
 # Caledonian Philatelic Society History
 
-[History](./history)
+[Back to History](./history) / [Previous Meetings](./previous-meetings) / [Past Presidents](./past-presidents)
 
 1. [Centennial](#centennial)
 1. [Hosting ASPS Annual Congress](#hosting-asps-annual-congress)

@@ -1,10 +1,10 @@
 # Meetings
 
-[Previous Meetings](./previous-meetings) / [Advice for visiting speakers](./advice-for-visiting-speakers)
+[Advice for visiting speakers](./advice-for-visiting-speakers)
 
-# Current Syllabus
+## Current Syllabus
 
-## 2025 - 2026 ##
+### 2025 - 2026
 
 Meetings will be listed when the syllabus is finalised.
 

@@ -1,5 +1,5 @@
 # Glasgow Philatelic Society History
 
-[History](./history)
+[Back to History](./history)
 
 ...
