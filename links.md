@@ -3,7 +3,7 @@
 ### General UK Philatelic Internet Sites
 
 - [ABPS (The Association of British Philatelic Societies)](https://www.abps.org.uk)
-- [Stamp Auction Houses in UK](https://www.stampdomain.com/auctionhouse.htm)
+- [Philatelic Traders Society](https://www.thepts.net)
 - [The Royal Philatelic Society](https://www.rpsl.org.uk/)
 - [Royal Mail](https://www.royalmail.com/portal/stamps/)
 - [Stanley Gibbons](https://www.stanleygibbons.com/home/)
