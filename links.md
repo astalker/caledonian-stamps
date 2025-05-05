@@ -4,7 +4,7 @@
 
 - [ABPS (The Association of British Philatelic Societies)](https://www.abps.org.uk)
 - [Philatelic Traders Society](https://www.thepts.net)
-- [The Royal Philatelic Society](https://www.rpsl.org.uk/)
+- [The Royal Philatelic Society London](https://www.rpsl.org.uk/)
 - [Royal Mail](https://www.royalmail.com/portal/stamps/)
 - [Stanley Gibbons](https://www.stanleygibbons.com/home/)
 
