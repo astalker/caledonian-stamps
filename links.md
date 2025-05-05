@@ -6,7 +6,7 @@
 - [Philatelic Traders Society](https://www.thepts.net)
 - [The Royal Philatelic Society London](https://www.rpsl.org.uk/)
 - [Royal Mail](https://www.royalmail.com/portal/stamps/)
-- [Stanley Gibbons](https://www.stanleygibbons.com/home/)
+- [Stanley Gibbons](https://www.stanleygibbons.com)
 
 ### Scottish Internet Sites
 
