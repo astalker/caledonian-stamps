@@ -30,7 +30,6 @@
 - [Germany and Colonies Philatelic Society](https://www.germanphilately.org)
 - [France and Colonies Philatelic Society](https://www.fcps.org.uk)
 - [Railway Philatelic Group](https://www.railwayphilatelicgroup.co.uk)
-- [The Bird Stamp Society](https://www.birdstampsociety.org)
 - [Guernsey Stamps and Collectibles](https://www.guernseystamps.com)
 - [Channel Islands specialists’ Society](https://www.ciss1950.org.uk)
 - [Jersey Stamps](https://www.jerseystamps.com)
