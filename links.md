@@ -11,13 +11,9 @@
 ### Scottish Internet Sites
 
 - [Association of Scottish Philatelic Societies - Includes links to other Scottish Philatelic Societies](https://www.scottishphilately.co.uk/)
-- [Scottish Philatelic Trade Association - Large List of Dealers, Scottish and otherwise](https://www.philatelicsociety.com/spta/spta-members.html)
 - [Glasgow Stamp Shop](https://www.Glasgowstampshop.co.uk)
 - [Robert Murray Stamp Shop](https://www.stamp-shop.com)
-- [Border Stamps](https://www.stores.ebay.co.uk/Border-Stamps)
-- [Tom Brown's Stamp Shop](https://www.tombrownstamps.co.uk/)
-- [Scotstamps](https://www.stamps-for-sale.com)
-- [Stenlake Publishing](https://www.stenlake.co.uk/)
+- [Stenlake Publishing](https://www.stenlake.co.uk)
 
 ### Specialist Societies and Sites of General Interest
 
