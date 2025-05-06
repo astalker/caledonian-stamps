@@ -17,7 +17,7 @@
 
 ### Specialist Societies and Sites of General Interest
 
-- [The Great Britain Collectors Club]((https://www.collectors-club-of-great-britain.co.uk)
+- [The Great Britain Collectors Club](https://www.collectors-club-of-great-britain.co.uk)
 - [New Zealand Society of Great Britain](https://www.nzsgb.org.uk)
 - [The British Society of Australian Philately](https://www.bsap.org.uk/)
 - [American Philatelic Society - Official magazine of American Philatelic Society](https://www.stamps.org)
