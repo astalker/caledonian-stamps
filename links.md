@@ -31,7 +31,7 @@
 - [France and Colonies Philatelic Society](https://www.fcps.org.uk)
 - [Railway Philatelic Group](https://www.railwayphilatelicgroup.co.uk)
 - [Guernsey Stamps and Collectibles](https://www.guernseystamps.com)
-- [Channel Islands specialists’ Society](https://www.ciss1950.org.uk)
+- [Channel Islands specialists’ Society](https://www.ciss.uk)
 - [Jersey Stamps](https://www.jerseystamps.com)
 - [Isle of Man Post Office](https://www.iompost.com/stamps-coins)
 - [Eire Philatelic Society](https://www.eirephilatelicassoc.org)
