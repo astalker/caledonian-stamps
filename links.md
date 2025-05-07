@@ -80,11 +80,6 @@
 
 - [Cinderella Stamp Club - &quot;local stamps, telegraph stamps, railway stamps, revenues, fiscals, forgeries, bogus and phantom issues, Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels and many other items&quot;](https://www.cinderellastampclub.com/)
 
-### Framas/Variable Value Stamps/Meter Stamps
-
-- [ATEEME. Variable value stamps study group](https://www.ateeme.net/angles/welcome_a.html)
-- [UK Meter Franking - All about collecting meter marks](https://www.meterfranking.co.uk/)
-
 ### Machins
 
 - [GB Machins - General site on Machin stamps](https://www.gbmachins.co.uk/)
