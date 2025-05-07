@@ -82,7 +82,6 @@
 ### Accessories
 
 - [Stanley Gibbons](https://www.stanleygibbons.com/)
-- [Stamp albums and all Collecting accessories](https://www.predecimal.com/lighthouse)
 - [Showgard Accessories](https://www.showgard.com/)
 - [Lighthouse Accessories](https://www.leuchtturm.com/)
 - [Prinz Publications and Accr=ssories](https://www.prinzuk.co.uk/)
