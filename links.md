@@ -57,7 +57,7 @@
 ### Thematics
 
 - [British Thematic Association](https://www.britishthematic.org.uk/)
-- [Glasgoe=w Thematic Society](https://www.glasgowthematicsociety.org.uk)
+- [Glasgow Thematic Society](https://www.glasgowthematicsociety.org.uk)
 - [American Topical Association](https://www.americantopicalassn.org/)
 - [TPO &amp; Seapost Society - TPO and RPO postmarks and covers, sea post and paquebot marks, ship and packet letters and other maritime history.](https://www.tpo-seapost.org.uk/)
 
