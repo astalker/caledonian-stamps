@@ -51,7 +51,6 @@
 
 - [British Library - see the Tapling Collection and many other British Library Collections](https://thedigitalphilatelist.com/british-librarys-philatelic-collections-tapling-collection)
 - [The Postal Museum](https://www.postalmuseum.org/)
-- [Bath Postal Museum](https://www.bathpostalmuseum.org/)
 
 ### Thematics
 
