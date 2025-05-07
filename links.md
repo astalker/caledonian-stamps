@@ -49,7 +49,7 @@
 
 ### Museums
 
-- [British Library - see the Tapling Collection and many other British Library Collections](https://www.bl.uk/collections/philatelic)
+- [British Library - see the Tapling Collection and many other British Library Collections](https://thedigitalphilatelist.com/british-librarys-philatelic-collections-tapling-collection\0
 - [Royal Mail Heritage](https://www.postalheritage.org.uk/)
 - [Bath Postal Museum](https://www.bathpostalmuseum.org/)
 
