@@ -79,7 +79,6 @@
 ### Cinderella Stamps
 
 - [Cinderella Stamp Club - &quot;local stamps, telegraph stamps, railway stamps, revenues, fiscals, forgeries, bogus and phantom issues, Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels and many other items&quot;](https://www.cinderellastampclub.com/)
-- [Dummy Stamps - Newsletters on British dummy philatelic material](https://www.stampprinters.info/dummystamps.htm)
 
 ### Framas/Variable Value Stamps/Meter Stamps
 
