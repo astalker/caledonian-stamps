@@ -36,6 +36,8 @@
 - [Isle of Man Post Office](https://www.iompost.com/stamps-coins)
 - [Eire Philatelic Society](https://www.eirephilatelicassoc.org)
 - [Dauwalders of Surrey](https://www.dauwalders.co.uk)
+- [Brish Empire Study Group](https://bestudygroup.org)
+- 
 ### Stamp Dealers - non Scottish
 
 - [ADPS Stamp Dealers Society](https://www.adpsstampdealers.uk/)
