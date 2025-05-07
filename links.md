@@ -64,7 +64,6 @@
 ### First Day Covers
 
 - [Buckingham Covers](https://www.buckinghamcovers.com)
-- [The Cambridge Stamp Centre](https://www.bfdc.co.uk/producers/cambridge_stamp_centre)
 - [Benham](https://www.benham.co.uk/)
 - [British First Day Covers](https://www.bfdc.co.uk/)
 - [Rush Stamps](https://www.rushstamps.co.uk/)
