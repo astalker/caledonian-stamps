@@ -80,11 +80,6 @@
 
 - [Cinderella Stamp Club - &quot;local stamps, telegraph stamps, railway stamps, revenues, fiscals, forgeries, bogus and phantom issues, Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels and many other items&quot;](https://www.cinderellastampclub.com/)
 
-### Machins
-
-- [GB Machins - General site on Machin stamps](https://www.gbmachins.co.uk/)
-- [Machin Mania - Loads of information on Machin Stamps and links to other Machin Stamp Collecting and Study Sites](https://machinmania.blogspot.co.uk/)
-
 ### Accessories
 
 - [Duncannon Partnership](https://www.duncannon.co.uk/)
