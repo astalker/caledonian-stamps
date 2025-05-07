@@ -90,9 +90,8 @@
 ### Albums
 
 - [Britannia Albums](https://www.britanniaalbums.com/)
-- [Stamp Supplies](https://www.safepub.com/stamps.htm)
 - [Stanley Gibbons](https://www.stanleygibbons.com/)
-- [Arrowfile](https://www.arrowfile.com/)
+- [Arrowfile - best for postcard collecting](https://www.arrowfile.com/)
 - [Stamp Albums Web - Offers stamp album pages for the US and worldwide](https://www.stampalbums.com/)
 - [GB Stamp Albums - Great Britain Stamp Album Page](https://www.gbstampalbums.co.uk/)
 - [Palo Albums](https://paloalbums.com/)
