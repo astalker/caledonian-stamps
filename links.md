@@ -35,8 +35,10 @@
 - [Jersey Stamps](https://www.jerseystamps.com)
 - [Isle of Man Post Office](https://www.iompost.com/stamps-coins)
 - [Eire Philatelic Society](https://www.eirephilatelicassoc.org)
-- [Brish Empire Study Group](https://bestudygroup.org)
-- 
+- [Brish Empire Study Group](https://https://scandps.org.uk/bestudygroup.org)
+- [Netherlands Philatelic Circle](https://www.philatelicdatabase.com)
+- [Scandinavia Philatelic Society](https://scandps.org.uk/)
+-- 
 ### Stamp Dealers - non Scottish
 
 - [ADPS Stamp Dealers Society](https://www.adpsstampdealers.uk/)
