@@ -73,7 +73,6 @@
 
 - [Stamp Magazine](https://www.stampmagazine.co.uk/)
 - [Stanley Gibbons Stamp Monthly](https://www.gibbonsstampmonthly.com/)
-- [Stamp Collecting](https://www.stamp-collecting.co.uk/)
 - [Stamp Magazine](https://stampmagazine.co.uk)
 - [Stamp and Coin Mart Magazine](https://warnersgroup.co.uk/collecting/stamp-and-coin-mart-magazine/)
 - [Linn's Stamp News - world's largest weekly stamp newspaper - loads of information](https://www.linns.com/)
