@@ -35,7 +35,6 @@
 - [Jersey Stamps](https://www.jerseystamps.com)
 - [Isle of Man Post Office](https://www.iompost.com/stamps-coins)
 - [Eire Philatelic Society](https://www.eirephilatelicassoc.org)
-- [Dauwalders of Surrey](https://www.dauwalders.co.uk)
 - [Brish Empire Study Group](https://bestudygroup.org)
 - 
 ### Stamp Dealers - non Scottish
@@ -82,12 +81,12 @@
 
 ### Accessories
 
-- [Duncannon Partnership](https://www.duncannon.co.uk/)
 - [Stanley Gibbons](https://www.stanleygibbons.com/)
-- [Vera Trinder](https://www.veratrinder.org/)
 - [Stamp albums and all Collecting accessories](https://www.predecimal.com/lighthouse)
 - [Showgard Accessories](https://www.showgard.com/)
 - [Lighthouse Accessories](https://www.leuchtturm.com/)
+- [Prinz Publications and Accr=ssories](https://www.prinzuk.co.uk/)
+- [Dauwalders of Surrey](https://www.dauwalders.co.uk)
 
 ### Albums
 
