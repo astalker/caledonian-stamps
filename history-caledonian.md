@@ -1,6 +1,6 @@
 # Caledonian Philatelic Society History
 
-[Back to History](./history) / [Previous Meetings](./previous-meetings) / [Past Presidents](./past-presidents)
+[Back to History](./history) / [Previous Meetings](./previous-meetings) / [Past Presidents](./past-presidents) / [Competitions](./competitions)
 
 1. [Centennial](#centennial)
 1. [Hosting ASPS Annual Congress](#hosting-asps-annual-congress)
@@ -292,7 +292,7 @@ Stamp | Title of Painting | Artist | Nationality
   5 | “A Portrait of a Man in his Thirties” (1633)| Franz HALS| Flemish
   6 | “A Self Portrait aged 63” (1669)| REMBRANDT (1606 – 1669)| Dutch
   7 | “In the Courtyard of a House in Delft” (1658) | Pieter de HOOGH (1629 – 1684)| Dutch
-  8 | “A Child with an Apple” | Jean--Baptiste GREUZE (1725 – 1805)| French 
+  8 | “A Child with an Apple” | Jean--Baptiste GREUZE (1725 – 1805)| French
   9 | “Belshazzar’s Feast” (163?)| REMBRANDT (1606 – 1669)| Dutch
   10 | “Equestrian Portrait” (1663)| REMBRANDT (1606 – 1669)| Dutch
   11 | “An Old Man in an Armchair” (1652)| REMBRANDT (1606 – 1669)| Dutch
@@ -300,17 +300,17 @@ Stamp | Title of Painting | Artist | Nationality
   13 | “The Partner’s Daughter with a Cat” | Thomas GAINSBOROUGH (1727 – 1788)| English
   14 | “Cornelis van der Geest” (1620)| Anthony VAN DYKE (1599 – 1641)| Flemish
   15 | “Madonna and Child” | TITIAN (? – 1576)| Italian
-  16 | “A Young Man Drinking” | Style of MURILLO| 
+  16 | “A Young Man Drinking” | Style of MURILLO|
   17 | “A Man and a Woman beside a Virginal”| Gabriel METSU(1629 – 1667)| Dutch
   18 | “Dona Isabel de Porcel” | Francisco de Goya (1746 – 1928)| Spanish
   19 | “Pomeranian Bitch and Puppy” | Thomas GAINSBOROUGH (1727 – 1788)| English
   20 | “A Man Playing a Lute” (1624)| RHendrick ter Bruggen (1588 – 1629)| Dutch
   21 | “An Elderly Man as St Paul” (1659)| REMBRANDT (1606 – 1669)| Dutch
   22 | “A Young Woman Standing at a Virginal” (c 1670)| Johannes VERMEER (1632 – 1675)| Dutch
-  23 | “The Painter’s Daughters Chasing a Butterfly” | Thomas GAINSBOROUGH (1727 – 1788)| English 
+  23 | “The Painter’s Daughters Chasing a Butterfly” | Thomas GAINSBOROUGH (1727 – 1788)| English
   24 | “An Interior with Musicmakers” | Gabriel METSU (1629 – 1667)| Dutch
   25 | “Susannah Lunden” (c 1624)| Peter Pauwel RUBENS (1577 – 1640)| Flemish
-  
+
 Labels 1 - 20 are contained inside the Commemorative Booklet in sheet form. Labels 21 – 24 are affixed to the front cover.  Label 25 is affixed to the front cover and “tied” with a commemorative postmark.
 
 <div style="display:flex">
