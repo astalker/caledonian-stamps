@@ -107,4 +107,4 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - 
 ### General Reference
 
-- [Collectors Club of Chicago - Reference site with questions and answers. Highly recommended](https://www.collectorsclubchicago.org/)
+- [Collectors Club of Chicago - Reference site with questions and answers. Highly recommended](https://www.collectorsclubchicago.org)
