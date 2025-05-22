@@ -88,7 +88,7 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - [Stanley Gibbons](https://www.stanleygibbons.com/)
 - [Showgard Accessories](https://www.showgard.com/)
 - [Lighthouse Accessories](https://www.leuchtturm.com/)
-- [Prinz Publications and Accr=ssories](https://www.prinzuk.co.uk/)
+- [Prinz Publications and Accessories](https://www.prinzuk.co.uk/)
 - [Dauwalders of Surrey](https://www.dauwalders.co.uk)
 
 ### Albums
