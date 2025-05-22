@@ -104,7 +104,7 @@ Listed below are a wide range of internet links to other philatelic Societies an
 ### Postmarks
 
 - [British Postmark Society](https://www.britishpostmarksociety.org.uk/)
-- 
+
 ### General Reference
 
 - [Collectors Club of Chicago - Reference site with questions and answers. Highly recommended](https://www.collectorsclubchicago.org)
