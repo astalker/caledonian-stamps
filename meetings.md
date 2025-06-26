@@ -4,9 +4,17 @@
 
 ## Current Syllabus
 
+There are three forthcoming summer meetings at which members are invited to bring along short displays and any material they wish to sell. All these meetings will be in Partick Burgh Hall. Room 1 from 1.15 to 3.00pm om:
+
+Thursday 17 July
+
+Thursday 14 August
+
+Thursday 18 September
+
 ### 2025 - 2026
 
-Meetings will be listed when the syllabus is finalised.
+Meetings for the forthcoming year will be listed when the syllabus is finalised.
 
 Locations of meetings are indicated at right of table below. University meetings will be in the Graham Hills Building room GH542 as described on **HOME** page. Meetings at Partick Burgh Halls are as described below the table.
 
