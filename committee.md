@@ -1,6 +1,6 @@
 ## Committee and Office Bearers of Glasgow Caledonian Philatelic Society ##
 
-**Hon. President**: Mr W. Colley, FRPSL
+**Hon. President**:  
 
 **Hon. Vice Presidents**
 
@@ -10,7 +10,7 @@
 
 **Vice-President**: **Anthony Duda**
 
-**Secretary**: **Dr Stewart Gardiner FRPSL**
+**Secretary**: **Alistair Burrow** Interim Secretary
 
 **Treasurer**: **Alan G. Blakeley**
 
@@ -18,11 +18,11 @@
 
 **Delegate to Congress**: George Henshilwood
 
-**Public Relations Officer**: Dr Stewart Gardiner FRPSL
+**Public Relations Officer**: 
 
-**Forgery Warden**: Dr. Stewart Gardiner FRPSL
+**Forgery Warden**: 
 
-**Archivist**: Dr. Stewart Gardiner FRPSL
+**Archivist**: 
 
 **Webmaster**: Dr David Stalker
 
@@ -34,6 +34,6 @@
 
 **Examiners**: Elizabeth Nairn & Gordon Shepherd
 
-**Advisory Committee** George Henshilwood, Dr Stewart Gardiner FRPSL, Alan Blakeley
+**Advisory Committee** George Henshilwood, Alan Blakeley
 
 Note: Those in bold are automatically on committee.
