@@ -12,7 +12,7 @@ Locations of meetings are indicated at right of table below. University meetings
 
 Afternoon meetings with be held in Partick Burgh Halls. Meeings in Strathclyde University are designated **U** in the table below, and those in Partick Burgh Halls as **P**.
 
-Date  | Subject | Displayer | Location | Afternoon Meetings |
+Date  | Subject | Displayer | Location | Tining of meetings |
 ---- | ------- | --------- | -------- | --------------  |
 2 October | Presidential Display | | **P** | Afternoon meeting
 9 October | Sealing and Securing the Letter | George Henshilwood will present the Late Dr Stewart Gardiner's Large Gold Exhibit from EUROPHILEX 2025 in Birmingham | **U** | Evening meeting
