@@ -4,46 +4,11 @@ Welcome to the **Glasgow Caledonian Philatelic Society** promoting stamp collect
 
 At the 2025 AGMs of both Glasgow and Caledonian Philatelic Societies the merger to form **Glasgow Caledonian Phiatelic Society** was unanimously agreed. 
 
-The first meeting, on 10th April 2025, of the new society, held immediately after the Caledonian PS AGM, was used to elect the Office Beaers and Committee of the new Society and they are shown in the Committee page.
+The first full meeting of the **Glasgow Caledonian Philatelic Society** in the 2025 - 2026 session will be held on 2nd October 2025 in Partick Burgh Halls. **Note that food will be suppiled at this meeting so desist from having a lunch beforehand.**
 
-## ASPS Congress 2025
+Meetings will alternate between Thursday afternoon meetings in Partick Burgh Halls and Thursday evening meetings in Strathclyde University as detailed in the Meetings page. As part of the merger agreement there will be two afternoon meetings in Partick Burgh Halls in each month.
 
-The ASPS Congress for 2025 was held in the **VINE CONFERENCE CENTRE, 131 GARVOCK HILL, DUNFERMLINE, KY11 4JU** on **4th and 5th April 2025**. 
-
-It was generally agreed that the venue was a success and the venue has been booked for 2026. Congratulations are due to the following members of the  Glasgow Caledonian Philatelic Society who won trophies in the National Exhibition.
-
-**Traditional Non-GB Post- 1900** and **Bridge of Allan Trophy**
-
-Dr David Stalker for ***The 1960 Christmas Stamp of New Zealand*** - Gold Medal 
-
-**Aerophilatelic Class** and **Aerophilatelic Shield**
-
-Dr Brian Dow for ***Norwegian Airmail & Priority Labels 1926 - 2019*** - Small Silver Gilt Medal
-
-**Scottish Postal History** and **Bruce Auckland Centennial Quaich**.
-
-Dr Brian Dow for P***erthshire Local Undated Handstamps*** - Small Silver Gilt Medal
-
-**Traditional Non-GB Pre-1900** and **Ferris Trophy** 
-
-Dr Stewart Gardiner for ***French "Connaissements" - "Bills of Lading" Revenues and their usage*** - Silver Medal
-
-**Picture Postcards** and ** Scottish Postcard Trophy**
-
-Alexander Kerr for ***Criagendoran*** - Large silver Gilt Medal
-
-**Literature Class** and **Robson Lowe Salver**
-
-Dr Brian Dow and Robert Watt for ***Ayrshire Post Offices and Postmarks 1661 - 2023: Part II Postmarks*** - Gold medal
-
-**Best First Time Entrant** and **Cowell Salver**
-
-Alistair Burrow for ***The "Invention" of Leisure Camping holidays*** - Silver Medal.
-
-
-## 2025 - 2026 Session
-
-It was agreed in the merger that 2 of the meetings each month would be in the afternoon and they would be held in **Partick Burgh Halls** on **Thursdays** as detailed below. Meetings on alternate Thursdays wil still be held in Strathclyde University as detailed below. Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction - the Meetings page will be updated when details of the syllabus have been finalised.
+ Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction 
 
 ## Access to meeting room at Strathclyde University
 
