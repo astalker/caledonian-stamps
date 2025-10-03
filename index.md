@@ -4,8 +4,6 @@ Welcome to the **Glasgow Caledonian Philatelic Society** promoting stamp collect
 
 At the 2025 AGMs of both Glasgow and Caledonian Philatelic Societies the merger to form **Glasgow Caledonian Phiatelic Society** was unanimously agreed. 
 
-The first full meeting of the **Glasgow Caledonian Philatelic Society** in the 2025 - 2026 session will be held on 2nd October 2025 in Partick Burgh Halls. **Note that food will be suppiled at this meeting so desist from having a lunch beforehand.**
-
 Meetings will alternate between Thursday afternoon meetings in Partick Burgh Halls and Thursday evening meetings in Strathclyde University as detailed in the Meetings page. As part of the merger agreement there will be two afternoon meetings in Partick Burgh Halls in each month.
 
  Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction 
@@ -24,7 +22,7 @@ Full details and other detail of events and news about the hobby of stamp collec
 
 ## Membership
 
-The current annual subscription is &pound;15 (an out of town subscription is also available).
+The current annual subscription is &pound;15 (an out of town subscription is also available). For session 2025 - 2026 there will be no subscriptions. **FREE MEMBERSHIP**.
 
 How to pay your subscripion
 
