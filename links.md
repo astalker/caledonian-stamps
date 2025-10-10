@@ -24,11 +24,9 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - [The British Society of Australian Philately](https://www.bsap.org.uk/)
 - [American Philatelic Society - Official magazine of American Philatelic Society](https://www.stamps.org)
 - [The Postal History Society](https://www.postalhistory.org.uk/)
-- [British Airmail Society](https://www.britishairmailsociety.co.uk)
 - [GB Overprints Society](https://www.gbos.org.uk/)
 - [European Stamps](https://www.europeanstamps.net/)
 - [British North America Philatelic Society](https://www.bnaps.org/)
-- [Canadian Philatelic Society of Great Britain](https://www.canadianpsgb.org.uk)
 - [Germany and Colonies Philatelic Society](https://www.germanphilately.org)
 - [France and Colonies Philatelic Society](https://www.fcps.org.uk)
 - [Railway Philatelic Group](https://www.railwayphilatelicgroup.co.uk)
@@ -43,9 +41,6 @@ Listed below are a wide range of internet links to other philatelic Societies an
  
 ### Stamp Dealers - non Scottish
 
-- [ADPS Stamp Dealers Society](https://www.adpsstampdealers.uk/)
-- [Philatelic Traders Society](https://www.thephilatelictraderssociety.co.uk)
-- [Internet Philatelic Dealers Association](https://www.ipdastamps.org/)
 - [American Stamp Dealers Association](https://www.americanstampdealer.com)
 - [Canadian Stamp Dealers Association](https://www.csdaonline.com/)
 - [Australasian Philatelic Traders Association](https://www.apta.com.au/)
@@ -62,8 +57,7 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - [British Thematic Association](https://www.britishthematic.org.uk/)
 - [Glasgow Thematic Society](https://www.glasgowthematicsociety.org.uk)
 - [American Topical Association](https://www.americantopicalassn.org/)
-- [TPO &amp; Seapost Society - TPO and RPO postmarks and covers, sea post and paquebot marks, ship and packet letters and other maritime history.](https://www.tpo-seapost.org.uk/)
-
+- 
 ### First Day Covers
 
 - [Buckingham Covers](https://www.buckinghamcovers.com)
@@ -75,8 +69,6 @@ Listed below are a wide range of internet links to other philatelic Societies an
 
 - [Stamp Magazine](https://www.stampmagazine.co.uk/)
 - [Stanley Gibbons Stamp Monthly](https://www.gibbonsstampmonthly.com/)
-- [Stamp Magazine](https://stampmagazine.co.uk)
-- [Stamp and Coin Mart Magazine](https://warnersgroup.co.uk/collecting/stamp-and-coin-mart-magazine/)
 - [Linn's Stamp News - world's largest weekly stamp newspaper - loads of information](https://www.linns.com/)
 
 ### Cinderella Stamps
@@ -88,7 +80,6 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - [Stanley Gibbons](https://www.stanleygibbons.com/)
 - [Showgard Accessories](https://www.showgard.com/)
 - [Lighthouse Accessories](https://www.leuchtturm.com/)
-- [Prinz Publications and Accessories](https://www.prinzuk.co.uk/)
 - [Dauwalders of Surrey](https://www.dauwalders.co.uk)
 
 ### Albums
