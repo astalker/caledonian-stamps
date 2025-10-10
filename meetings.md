@@ -16,11 +16,20 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 ---- | ------- | --------- | -------- | --------------  |
 2 October | Presidential Display | | **P** | Afternoon meeting
 9 October | Sealing and Securing the Letter | George Henshilwood will present the Late Dr Stewart Gardiner's Large Gold Exhibit from EUROPHILEX 2025 in Birmingham | **U** | Evening meeting
-16 October | | The West Coast Vikings entertain with Non-Viking Material | **P** | Afternoon meeting
-23 October | Members night | Recent acquisitions and other things that I collect | **U** | Evening meeting
+16 October | Members | Recent acquisitions and other things that I collect| **P** | Afternoon meeting
+23 October | A Viking Loses His Way |  | **U** | Evening meeting
 30 October | Stamps and Postal History of Ghana | Ian Anderson  | **P** | Afternoon meeting
 6 November | Canada | Graham Searle |  **U** | Evening meeting
+13 November | Another Viking Raid | Keith Walker | **P** | Afternoon meeting
+15 November | Family Day at Kelvin Hall Afternoon meeting
+20 November | "A Good Walk Spoiled" | Graham Winters |  **U** | Evening Meeting
+27 November | Helensburgh Entertains | Andrew Black, Anthony Duda, Sandy Kerr | **P** | Afternoon meeting
+4 December | Bourse || **U** |Evening Meeting 
+11 December | "British Empire in Africa" | Robert Watt | **P** | Afternoon meeting
+18 December | Christmas meeting | | **P** | Afternoon meeting
 
+5 February | Competitions | | Evening meeting | **U** | Evening Meeting
+5 March | Auction | | Evening meeting| **U** | Evening Meeting
 
 Location of afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm
 
