@@ -22,7 +22,7 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 6 November | Canada | Graham Searle |  **U** | Evening meeting
 13 November | Another Viking Raid | Keith Walker | **P** | Afternoon meeting
 15 November | Family Day at Kelvin Hall
-20 November | "A Good Walk Spoiled" | Graham Winters |  **U** | Evening Meeting
+20 November | Members' Night | | **U** | Evening Meeting
 27 November | Helensburgh Entertains | Andrew Black, Anthony Duda, Sandy Kerr | **P** | Afternoon meeting
 4 December | Bourse || **U** |Evening Meeting 
 11 December | "British Empire in Africa" | Robert Watt | **P** | Afternoon meeting
