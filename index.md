@@ -8,18 +8,18 @@ Meetings will alternate between Thursday afternoon meetings in Partick Burgh Hal
 
 Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction 
 
-Congratulations to our current President, **George Henshilwood**,  who was elected as a Fellow of the Royal Philatelic Society of Londo on 19th November 2025 and gains the letters **FRPSL**.
+Congratulations to our current President, **George Henshilwood**,  who was elected as a Fellow of the Royal Philatelic Society of London on 19th November 2025 and gains the letters **FRPSL**.
 
 ## ASPS Stamp and Postcard Fair April 2026
 
-The Annual Congress of ASPS will be held in the Vine Centre in Dunfermline on 19th and 11th of April 2026. This year it will be hosted by Glasgow Caledonian Philatelic Society. After various discussions, and to braoden the appeal, there will be a nunber of changes in the set up this year. 
+The Annual Congress of ASPS will be held in the Vine Centre in Dunfermline on 19th and 11th of April 2026 and will be hosted by Glasgow Caledonian Philatelic Society. After various discussions, and to broaden the appeal, there are a nunber of changes in the set up this year. 
 
-1. There will be no formal dinner on the Friday evening- this will be replaced by a buffet on the Friday evening. A booking form for the Buffet is attached.  Please note that there will be no alcohol served at this meal (in accordance with the policy at the venue). Water and soft drinks will be available. 
+1. There will be no formal dinner on the Friday evening- this will be replaced by a buffet on the Friday evening. 
 2. The Tom Reilly presentation will take place as usual on the Friday evening.
-3. Presentation of Exhibition awards will follow the Tom Reilly Presentation. 
+3. National Exhibitions (Competitions) will continue as in previous years. Presentation of Exhibition awards will follow the Tom Reilly Presentation. 
 4. There  will be no Civic Reception.
 5. The only invited speaker will be for the Tom Reilly Presentation.
-6.There will be no printed programme, instead handouts will be produced as required.
+6. There will be no printed programme, instead handouts will be produced as required.
 7. The host society (GCPS) will provide Host Society displays.
 8. There will no longer be any invited society displays.
 9. The AGM of the ASPS will no longer be held during this event, thus focusing on the sale and purchase of philatelic materials – it will be held on a separate date and by video conferencing at an agreed date in May 2026.
