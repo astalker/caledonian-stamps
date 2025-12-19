@@ -15,33 +15,18 @@ Congratulations to our current President, **George Henshilwood**,  who was elect
 The Annual Congress of ASPS will be held in the Vine Centre in Dunfermline on 19th and 11th of April 2026. This year it will be hosted by Glasgow Caledonian Philatelic Society. After various discussions, and to braoden the appeal, there will be a nunber of changes in the set up this year. 
 
 1. There will be no formal dinner on the Friday evening- this will be replaced by a buffet on the Friday evening. A booking form for the Buffet is attached.  Please note that there will be no alcohol served at this meal (in accordance with the policy at the venue). Water and soft drinks will be available. 
-The Tom Reilly presentation will take place as usual on the Friday evening.
+2. The Tom Reilly presentation will take place as usual on the Friday evening.
+3. Presentation of Exhibition awards will follow the Tom Reilly Presentation. 
+4. There  will be no Civic Reception.
+5. The only invited speaker will be for the Tom Reilly Presentation.
+6.There will be no printed programme, instead handouts will be produced as required.
+7. The host society (GCPS) will provide Host Society displays.
+8. There will no longer be any invited society displays.
+9. The AGM of the ASPS will no longer be held during this event, thus focusing on the sale and purchase of philatelic materials – it will be held on a separate date and by video conferencing at an agreed date in May 2026.
+10. To broaden the appeal Congress will be now be promoted as a National Stamp & Postcard Fair.
  
-2. Presentation of Exhibition awards will follow the Tom Reilly Presentation. 
-
-3. There  will be no Civic Reception.
+GCPS has decided not to produce a souvenir cover for the event, but an alternative cover will be produced on behalf of ASPS.
  
-
-The only invited speaker will be for the Tom Reilly Presentation.
- 
-
-There will be no printed programme, instead handouts will be produced as required.
- 
-
-The host society will continue to provide displays, but there will no longer be any invited society displays.
- 
-
-The AGM of the ASPS will no longer be held during this event, thus focusing on the sale and purchase of philatelic materials – it will be held on a separate date and by video conferencing instead - three dates in May have been proposed and will be ratified on the Council Meeting on 17th January 2026.
- 
-
-To broaden the appeal Congress will be now be promoted as a National Stamp & Postcard Fair.
- 
-
-The host society (GCPS) has decided not to produce a souvenir cover for the event, but an alternative cover will be produced on behalf of ASPS.
- 
-
-The host society will continue to provide displays, but there will no longer be any invited society displays.
-
 ## Access to meeting room at Strathclyde University
 
 As in previous years, evening meetings are held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the **Location** Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542. Access to the Graham Hills building car park will be available from 7pm. There is no parking charge for this facility.
