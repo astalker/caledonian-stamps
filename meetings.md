@@ -27,6 +27,8 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 4 December | Bourse || **U** |Evening Meeting 
 11 December | "British Empire in Africa" | Robert Watt | **P** | Afternoon meeting
 18 December | Christmas meeting | | **P** | Afternoon meeting
+8 January  | Displays Planned for ASPS Stamp and Postcard Fair in April 2026 - Part 1| | **U** | Evening meeting
+15 January  | Displays Planned for ASPS Stamp and Postcard Fair in April 2026 - Part 2| | **P** | Afternoon meeting
 5 February | Competitions | | Evening meeting | **U** | Evening Meeting
 5 March | Auction | | Evening meeting| **U** | Evening Meeting
 
