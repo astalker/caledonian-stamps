@@ -29,8 +29,8 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 18 December | Christmas meeting | | **P** | Afternoon meeting
 8 January  | Displays Planned for ASPS Stamp and Postcard Fair in April 2026 - Part 1| | **U** | Evening meeting
 15 January  | Displays Planned for ASPS Stamp and Postcard Fair in April 2026 - Part 2| | **P** | Afternoon meeting
-5 February | Competitions | | Evening meeting | **U** | Evening Meeting
-5 March | Auction | | Evening meeting| **U** | Evening Meeting
+5 February | Competitions | | **U** | Evening Meeting
+5 March | Auction | | **U** | Evening Meeting
 
 Location of afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm
 
