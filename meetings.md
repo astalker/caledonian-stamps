@@ -29,6 +29,7 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 18 December | Christmas meeting | | **P** | Afternoon meeting
 8 January  | Displays Planned for ASPS Stamp and Postcard Fair in April 2026 - Part 1| | **U** | Evening meeting
 15 January  | Displays Planned for ASPS Stamp and Postcard Fair in April 2026 - Part 2| | **P** | Afternoon meeting
+22 January | Glasgow| Stan Hunter | **U** | Evening Meeting
 5 February | Competitions | | **U** | Evening Meeting
 5 March | Auction | | **U** | Evening Meeting
 
