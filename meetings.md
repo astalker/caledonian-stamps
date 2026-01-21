@@ -29,10 +29,19 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 18 December | Christmas meeting | | **P** | Afternoon meeting
 8 January  | Displays Planned for ASPS Stamp and Postcard Fair in April 2026 - Part 1| | **U** | Evening meeting
 15 January  | Displays Planned for ASPS Stamp and Postcard Fair in April 2026 - Part 2| | **P** | Afternoon meeting
-22 January | Glasgow| Stan Hunter | **U** | Evening Meeting
-29 January | Cricket| Graham U'Ren and Ken Liddell | **P** | Afternoon Meeting
+22 January | Anyone for Glasgow| Stan Hunter | **U** | Evening Meeting
+29 January | Howzat| Graham U'Ren and Ken Liddell | **P** | Afternoon Meeting
 5 February | Competitions | | **U** | Evening Meeting
+12 March | TBC | | **P** | Afternoon Meeting
+19 February | Rutherglen Entertains | | **U** | Evening Meeting
+26 February | Third Pictorial Issue of New Zealand (1960) | Paul Wreglesworth | **P** | Afternoon Meeting
 5 March | Auction | | **U** | Evening Meeting
+12 March | Canadian Revenues | Norman Kelso| **P** | Afternoon Meeting
+19 March | Maureen Matheson, David Stalker, Murray Touche | | **U** | Evening Meeting
+26 March | TBC | | **P** | Afternoon Meeting
+2 April | AGM (Including Members Displays) | | **P** | Afternoon Meeting
+
+10/11 April | ASPS Stamp and Postcard Fair | | Vine Centre, Dunfermline | 
 
 Location of afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm
 
