@@ -38,7 +38,7 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 5 March | Auction | | **U** | Evening Meeting
 12 March | Canadian Revenues | Norman Kelso| **P** | Afternoon Meeting
 19 March | Malta | Ian Mason |**U** | Evening Meeting
-26 March |Maureen Matheson, David Stalker, Murray Touche | **P** | Afternoon Meeting
+26 March |Maureen Matheson, David Stalker, Murray Touche | | **P** | Afternoon Meeting
 2 April | AGM (Including Members Displays) | | **U** | Evening Meeting
 10/11 April | ASPS Stamp and Postcard Fair | | Vine Centre, Dunfermline | 
 
