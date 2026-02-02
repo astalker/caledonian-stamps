@@ -1,4 +1,4 @@
-# Contacts
+# Contact
 
 Contact with the Caledonian Philatelic Society can be made at the following email address:
 
