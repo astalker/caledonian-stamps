@@ -32,13 +32,13 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 22 January | Anyone for Glasgow| Stan Hunter | **U** | Evening Meeting
 29 January | Howzat| Graham U'Ren and Ken Liddell | **P** | Afternoon Meeting
 5 February | Competitions | | **U** | Evening Meeting
-12 February | TBC | | **P** | Afternoon Meeting
+12 February | George Henshilwood entertains | | **P** | Afternoon Meeting
 19 February | Rutherglen Entertains | | **U** | Evening Meeting
 26 February | Third Pictorial Issue of New Zealand (1960) | Paul Wreglesworth | **P** | Afternoon Meeting
 5 March | Auction | | **U** | Evening Meeting
 12 March | | Maureen Matheson, David Stalker, Murray Touche | **P** | Afternoon Meeting
 19 March | Malta | Ian Mason |**U** | Evening Meeting
-26 March || | **P** | Afternoon Meeting
+26 March |Canadian Revenues| Norma Kelso | **P** | Afternoon Meeting
 2 April | AGM (Including Members Displays) | | **U** | Evening Meeting
 10/11 April | ASPS Stamp and Postcard Fair | | Vine Centre, Dunfermline | 
 
