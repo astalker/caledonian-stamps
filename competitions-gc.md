@@ -15,18 +15,18 @@ Year | Winner
 
 Year | Winner
 ---- | ------
-2025 | George Henshilwood
+2026 | George Henshilwood
 
 ## Merrylees Trophy for Thematic and Open Classes
 
 Year | Winner
 ---- | ------
-2025 | George Henshilwood
+2026 | George Henshilwood
 
 ## Fairbairn Salver for Postcards and Cinderellas
 
 Year | Winner
 ---- | ------
-2025 | Andrew Black
+2026 | Andrew Black
 
 
