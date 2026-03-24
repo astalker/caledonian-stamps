@@ -39,7 +39,7 @@ Date  | Subject | Displayer | Location | Timing of meetings |
 12 March | | Maureen Matheson, David Stalker, Murray Touche | **P** | Afternoon Meeting
 19 March | Malta | Ian Mason |**U** | Evening Meeting
 26 March |Canadian Revenues| Norma Kelso | **P** | Afternoon Meeting
-2 April | AGM (Including Members Displays) | | **P** | Afternoon Meeting
+2 April | AGM with Mini Bourse plus refreshments | | **P** | Afternoon Meeting
 10/11 April | ASPS Stamp and Postcard Fair | | Vine Centre, Dunfermline | 
 
 Location of afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm
