@@ -29,4 +29,9 @@ Year | Winner
 ---- | ------
 2026 | Andrew Black
 
+## Caledonian Rosebowl
+
+Year | Winner
+---- | ------
+2026 | Anthony Duda
 
