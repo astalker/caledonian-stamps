@@ -1,6 +1,6 @@
 # Meetings
 
-[Advice for visiting speakers](./advice-for-visiting-speakers)
+[Advice for visiting speakers](./advice-for-visiting-speakers) / [Previous Meetings](./previous-meetings-gc)
 
 ## Current Syllabus
 
