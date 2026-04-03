@@ -4,11 +4,11 @@ Welcome to the **Glasgow Caledonian Philatelic Society** promoting stamp collect
 
 At the 2025 AGMs of both Glasgow and Caledonian Philatelic Societies the merger to form **Glasgow Caledonian Phiatelic Society** was unanimously agreed. 
 
-Meetings will alternate between Thursday afternoon meetings in Partick Burgh Halls and Thursday evening meetings in Strathclyde University as detailed in the Meetings page. As part of the merger agreement there will be two afternoon meetings in Partick Burgh Halls in each month.
+Meetings for session 2026/2027 will be in a dedicated room co-located with the Glasgow Stamp Shop at the top of West Nile Street in Glasgow. Further details will be provided when the room has been set up for our use. This provides us with a Centralised location in Glasgow and the room can be set up in a semi permanent manner. Meetings will still alternate between Thursday afternoon meetings and Thursday evening meetings as detailed in the Meetings page. Details of access wil be given in the Location page of the web site and as described below.
 
-Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, an annual competition and the ever popular auction 
+Afternoon meetings will still be at 1.30pm but the evening meetings will be held at 7pm.
 
-Congratulations to our current President, **George Henshilwood**,  who was elected as a Fellow of the Royal Philatelic Society of London on 19th November 2025 and gains the letters **FRPSL**.
+Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, annual competitions and the ever popular auction 
 
 ## ASPS Stamp and Postcard Fair April 2026
 
@@ -27,21 +27,17 @@ The Annual Congress of ASPS will be held in the Vine Centre in Dunfermline on 19
  
 GCPS has decided not to produce a souvenir cover for the event, but an alternative cover will be produced on behalf of ASPS.
  
-## Access to meeting room at Strathclyde University
+## Access to meeting room at Glasgow Stamp Shop.
 
-As in previous years, evening meetings are held in the Graham Hills Building, Room GH542 at 7.30pm. Access is from Richmond Street and George Street - see the **Location** Page for directions. Due to changes in Strathclyde University control of access to buildings the door from George Street will be closed at 7pm and the door from the car park is via a key card. The door on Richmond Street opposite the Students' Union will always be open. To access the meeting room take the lift to floor 5. On leaving the lift turn immediately to the left and take the corridor across the top of the car park. At the end turn left and follow the corridor to room GH542. Access to the Graham Hills building car park will be available from 7pm. There is no parking charge for this facility.
+The Glasgow Stamp Shop is in process of re-locating from its current premises to one next door and further deatils will be provided. It will still be at the top of West Nile Street in glasgow. Being in the centre of Glasgow there is easy access from the nearby main rialway stations (Queen Street and Central Station) as well as the glasgow Underground at Buchanan Street. On street parking is available in the evnings but is very limited. It is advised to use the car parks at the Concert Hall Multi Storey Car Park or the Buchanan Galleries Multi Storey Car Park. Freuet busses travel to the centre of Glasgow and the Buchanan Bus Station is nearby.  All the car parks and bus station are a short walk to the Glasgow Stamp Shop.
 
-## Access to Afternoon meetings at Partick Burgh Hall
-
-Location of afternoon meetings is **Room 1, Partick Burgh Hall, 9 Burgh Hall St, Partick G11 5LW**. Room is to left as you enter through Main Entrance. Doors open from 1.15pm, meeting 1.30-3.00pm. See **Location** page for directions.
-
-Note that car parking is limited. and is metered. There is easy access from both Partick Underground Staion and the Partick Main Line Station - with only a short walking distance to the hall. There are also a number of frequent buses along Dumbarton Road from Glasgow City Centre and from Braehead Shopping Centre.
+There is a lift as the room is upstairs.
 
 Full details and other detail of events and news about the hobby of stamp collecting in Scotland can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
 
 ## Membership
 
-The current annual subscription is &pound;15 (an out of town subscription is also available). For session 2025 - 2026 there will be no subscriptions. **FREE MEMBERSHIP**.
+The annual subscription is &pound;15 (an out of town subscription is also available). It was agreed at the 2025/2026 AGM to re-instate the subscription.
 
 How to pay your subscripion
 
@@ -75,7 +71,7 @@ G733QN
 
 Visitors will receive a warm welcome, however regular visitors are encouraged to join the Societ.
 
-Membership benefits include access to the Caledonian Philatelic Society exchange packet circuit, impartial philatelic advice should you or your family wish to dispose of a collection and a personal email account @caledonianphilatelic.org.uk, subject to availability. Contact the webmaster with your proposed email name if you wish to take up this offer.
+Membership benefits include access to the Glasgow Caledonian Philatelic Society exchange packet circuit, impartial philatelic advice should you or your family wish to dispose of a collection. Contact the webmaster with your proposed email address if you wish to take up this offer and you can be put in contact withe the advisory committee..
 
 ## Uddingston Stamp & Postcard Group
 
