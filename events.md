@@ -2,8 +2,10 @@
 
 ## Kelvin Hall Open Days and Chinese New Year
 
+In recent years a set of tables has been set up at the Kelvin hall Open Day, which is normlly in early November each year. On one occasion there was also attendance at the Chinese New Year event in the Kelvin Hall. This is a good opportuity to publicise the Stamp Club and portray the joys and variety of things that can be done by collecting stamps. Normally we provide cards withe an animal, bird or fish in the centre and children are encouraged to stick stamps around the edge to make a colourful montage which they can take away. Children are also able to help make a stamp "snake". The event is very well attended and about 100 or more children have attended the stamp club tables. Parents are also encouraged to help and perhaps see the joy of stamp collecting.
+
 ## Social Evening
-One of the highlights of recent years has been the Social Evening. The first Social Evening was held in 1986 on the SV Carrick. Over the years the Social Evening was held in a variety of different venues:
+One of the highlights of recent years has been the Calrdonian Philatelic Society Social Evening. The first Social Evening was held in 1986 on the SV Carrick. Over the years the Social Evening was held in a variety of different venues:
 
 1986 – 1989 SV Carrick – Moored on Clyde Street, Glasgow
 
