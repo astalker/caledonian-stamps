@@ -4,7 +4,6 @@
 
 1. [Centennial](#centennial)
 1. [Hosting ASPS Annual Congress](#hosting-asps-annual-congress)
-1. [2500th Meeting](#2500th-meeting)
 1. [Final Meeting](#the-final-meeting-of-caledonian-philatelic-society)
 1. [110th Anniversary](#110th-anniversary)
 1. [Philatelic Congress of Great Britain](#philatelic-congress-of-great-britain)
