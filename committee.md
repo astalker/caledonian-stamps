@@ -6,34 +6,34 @@
 
  Mrs. M. Morris, DTP, FRPSL
 
-**President**: **George Henshilwood**
+**President**: **Anthony Duda**
 
-**Vice-President**: **Anthony Duda**
+**Vice-President**: **Alistair Burrow**
 
-**Secretary**: **Alistair Burrow** Interim Secretary
+**Secretary**: **Alistair Burrow**
 
 **Treasurer**: **Alan G. Blakeley**
 
 **Exchange Packet Secretary**: Mrs Lyn Robinson
 
-**Delegate to Congress**: George Henshilwood
+**Delegate to Congress**: George Henshilwood FRPSL
 
-**Public Relations Officer**: 
+**Public Relations Officer**: Alistair Burrow
 
-**Forgery Warden**: 
+**Forgery Warden**: Anthony Duda
 
-**Archivist**: 
+**Archivist**: Anthony Duda
 
 **Webmaster**: Dr David Stalker
 
 **Auctioneer**: Robert Watt
 
-**Roll Keeper**: Elizabeth Nairn
+**Roll Keeper**: Alistair Burrow
 
-**Committee**: Andrew Black: Alexander Kerr, Gordon Carroll
+**Committee**: President, Secretary, Tresasurer, Vice President, Lyn Robinson, Alexander Kerr, Gordon Carroll
 
-**Examiners**: Elizabeth Nairn & Gordon Shepherd
+**Examiner**: Murray Touche
 
-**Advisory Committee** George Henshilwood, Alan Blakeley
+**Advisory Committee** George Henshilwood FRPSL, Alan Blakeley
 
 Note: Those in bold are automatically on committee.
