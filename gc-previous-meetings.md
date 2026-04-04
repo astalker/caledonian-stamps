@@ -1,7 +1,7 @@
 # Previous Meetings
 
 [Back to Meetings](./meetings)
-### 2025 - 202
+### 2025 - 2026
 
 On this page the syllabi for previous meetings woll be displayed. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Glasgow Caledonian Philatelic Society has in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. 
 
@@ -33,7 +33,8 @@ Date  | Subject | Displayer
 5 March | Auction
 12 March | | Maureen Matheson, David Stalker, Murray Touche
 19 March | Malta | Ian Mason
-26 March | AGM  | 
+2 April | AGM with Mini Bourse plus refreshments
+10/11 April | ASPS Stamp and Postcard Fair | | Vine Centre, Dunfermline | 
 ...
 
 
