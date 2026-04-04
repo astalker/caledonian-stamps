@@ -33,7 +33,7 @@ Date  | Subject | Displayer
 12 March | | Maureen Matheson, David Stalker, Murray Touche
 19 March | Malta | Ian Mason
 2 April | AGM with Mini Bourse plus refreshments
-10/11 April | ASPS Stamp and Postcard Fair | | Vine Centre, Dunfermline
+10/11 April | ASPS Stamp and Postcard Fair |Vine Centre, Dunfermline
 
 
 
