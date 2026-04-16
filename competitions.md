@@ -1,6 +1,6 @@
 # Caledonian Philatelic Competitions
 
-[Back to Caledonian Philatelic History](./history-caledonian) / [Previous Caledonian Philatelic Competitions](previous-competitions.md)
+[Back to Caledonian Philatelic History](./history-caledonian) / [Previous Caledonian Philatelic Competitions](./previous-competitions)
 
 ## 2024 - 2025 Changes to the Competitions
 

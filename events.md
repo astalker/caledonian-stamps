@@ -31,4 +31,4 @@ The Social Evening was not held in 2020, 2021 or 2022 due to the restrictions im
 
 ### 1924 Anniversary Dinner
 
-![Annniversary-Dinner-1924](images/Anniversary-Dinner-1924.jpg)
+![Anniversary-Dinner-1924](images/Anniversary-Dinner-1924.jpg)
