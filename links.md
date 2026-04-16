@@ -1,6 +1,6 @@
 # Links
 
-Listed below are a wide range of internet links to other philatelic Societies and sites where you can get further information on general and spcialist aspects of stamp and postcard collecting. As well as sourcing albums and accsessories. The list is only a sample of what is out therw, but it gives you a start.
+Listed below are a wide range of internet links to other philatelic Societies and sites where you can get further information on general and specialist aspects of stamp and postcard collecting. As well as sourcing albums and accessories. The list is only a sample of what is out there, but it gives you a start.
 
 ### General UK Philatelic Internet Sites
 

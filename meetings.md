@@ -6,7 +6,7 @@
 
 The syllabus for 2026 - 2027 is still evolving and will be updated when available.
 
-Summer meetings wil be in the new venue alongside the Glasgow Stamp Shop on **23rd July 2026**, **13th August 2026** and **10th September 2026**. 
+Summer meetings will be in the new venue alongside the Glasgow Stamp Shop on **23rd July 2026**, **13th August 2026** and **10th September 2026**. 
 
 ### 2026 - 2027
 

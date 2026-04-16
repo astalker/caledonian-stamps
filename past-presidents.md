@@ -114,7 +114,7 @@ Date    | President
 2017-18 | Sandy Kerr |
 2018-19 | George Henshilwood |
 2019-20 | Dr David M Stalker |
-202 -21 | Alistair S Burrow |
+2020-21 | Alistair S Burrow |
 2021-22 | Mrs. Maureen Matheson|
 2022-23 | J. N. C. Mason|
 2023-24| Mrs E. Nairn |

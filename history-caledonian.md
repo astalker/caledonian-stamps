@@ -166,7 +166,7 @@ handstamps in pale claret and black, struck in Ireland. Frame 2 - examples of th
 
 The post office opened in 1725 with the town becoming a Burgh of Barony in 1748. This short display shows the development of its handstamps from the Straight Line namestamps to the numbered Double Circles.
 
-### Fr. 22 Scottish Airmals
+### Fr. 22 Scottish Airmails
 
 On 8th May 1933 Highland Airways inaugurated a passenger service between Inverness and Kirkwall. In 1934 the PMG placed a contract for the conveyance of all first class mail by Highland Airways. This service commenced on 29th May 1934.
 

@@ -2,7 +2,7 @@
 
 [Back to Caledonian Philatelic Society History](./history-caledonian)
 
-Syllabi for a number of previous years meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society had in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022 and in 2023. In  **2023 - 2024** only 2 meetings were on ZOOM with presenters from "Down South". A nmuber of meetings were held jointly with Glasgow Philatelic Society. A number of meetings were also held in the afternoon at Temple, Anniesland Church. In **2024 - 2025** there weere no ZOOM meetings and a number of afternoon meetings in Partick Burgh Halls, some being joint meetings with Glasgow Philatelic Society.
+Syllabi for a number of previous years meetings at the Caledonian Philatelic Society are shown below. A quick perusal of the titles of the displays will show the wide diversity of subjects that have been displayed. Many of the displays are by eminent philatelists, not only from within the Society, but from elsewhere in Scotland and Great Britain. There are many displays by Fellows of the Royal Philatelic Society of London (FRPSL) which enhances the standing and high esteem that the Caledonian Philatelic Society had in Philatelic Circles. Each year there are evenings devoted to short displays by members and there are the regular features such as Competition Night, the Bourse and Annual Auction. During session 2020/2021 the meetings were held using ZOOM. During session 2021/2022 the meetings were initially held using ZOOM but it was possible to resume some actual face-to-face meetings in the early part of 2022 and in 2023. In  **2023 - 2024** only 2 meetings were on ZOOM with presenters from "Down South". A number of meetings were held jointly with Glasgow Philatelic Society. A number of meetings were also held in the afternoon at Temple, Anniesland Church. In **2024 - 2025** there were no ZOOM meetings and a number of afternoon meetings in Partick Burgh Halls, some being joint meetings with Glasgow Philatelic Society.
 
 ## 2024 - 2025
 
@@ -49,7 +49,7 @@ Nov 7 | Displays by Members of Both Societies || Joint Meeting with Glasgow Phil
 Nov 11 | Family Day at Kelvin Hall
 Nov 16 | Bourse 
 Nov 16 | We Will Hope to Hear Tomorrow ! Alex Walker
-Nov 30 | Temperance and Maritimes | Alan blakeley
+Nov 30 | Temperance and Maritimes | Alan Blakeley
 Dec 5 | Forgery. Reprint, Fake and Bogus | Dr Stewart Gardiner FRPSL | Joint Meeting with Glasgow Philatelic Society
 Dec 14  |Christmas Evening
 Jan 4  | Malta: Postal Consequences of Political Decisions | Ian Mason
@@ -82,20 +82,20 @@ Nov 10 | Alphabet Lottery
 Nov 17 | Bourse
 Nov 24 | Visit by Leeds Philatelic Society || ZOOM Meeting
 Dec 1  | The World of Revenues | Dr Stewart Gardiner FRPSL
-DeC 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
+Dec 8  | British Owls/ Aphrodites Island | James Wigmore | ZOOM Meeting
 Dec 15 | Christmas Evening
 Jan 5  | Committee Entertains 
 Jan 10 | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
-Jan 19 | Agathon Faberge - Potrait of a Philatelist| Dr Jefferey Stone FRPSL | ZOOM Meeting
+Jan 19 | Agathon Faberge - Portrait of a Philatelist| Dr Jefferey Stone FRPSL | ZOOM Meeting
 Jan 26 | New Members' Display
-Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Staps | Dr David Stalker
+Feb 2  | A Pot Pourri of New Zealand Booklets and Coil Stamps | Dr David Stalker
 Feb 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
-Feb 16 | Copmpetition Night
+Feb 16 | Competition Night
 Feb 23 | US States | George Henshilwood
 March 2  | Auction Night
 March 7  | Joint Afternoon Meeting with Glasgow Philatelic Society | see below for detail of new venue
 March 16 | Visit by Lothian Philatelic Society
-March 23 | Faroe islands | Alistair Burrow
+Mar 23 | Faroe Islands | Alistair Burrow
 March 29 | Social Evening | Glasgow Grosvenor Hotel
 March 30 | GB Royalty Visits Abroad | Colin Marshall
 April 14/15 | Annual Congress of ASPS | Dewar's Centre, Perth
@@ -114,7 +114,7 @@ Nov 11 | Watermarks: from trademarks to modern security "John Dickinson and his 
 Nov 18 |	New Zealand Revenues	| Paul Woods
 Nov 25 | Early Canada	| Graham Searle
 Dec 2	 | Machins	| David Graham
-Dec 16 | 6 Sheeets from Members on a "Festive" theme	
+Dec 16 | 6 Sheets from Members on a "Festive" theme	
 Jan 6	 | 8 - 10 sheets	Committee Entertains
 Jan 13 | Presidential Display	
 Jan 20 | Early Guernsey Postal History	| Julian Bagwell
@@ -299,7 +299,7 @@ Jan 7 | Committee Entertains | Sponsored by Dr David A Cumming
 Jan 14 | A Thematic Look at Paris/at Religion | Bill Russell
 Jan 21 | Tour Round Africa | Dr Stewart Gardiner FRPSL
 Jan 28 | Modern British Postal History 1952 - 1971 | John Sussex RDP FRPSL
-Feb 4 | Vistit by Lanarkshire Philatelic Society |
+Feb 4 | Visit by Lanarkshire Philatelic Society |
 Feb 11 | Competition Night |
 Feb 18 | Stained Glass | Joan Trew
 Feb 25 | The Scottish Soldier | Gary Cheyne
@@ -321,7 +321,7 @@ Nov 6 | Bourse |
 Nov 13 | WWI From both sides of the Conflict | Andrew Brooks
 Nov 20 | Visit by Falkirk Philatelic Society |
 Nov 27 | Spain | Dr Ian Evans
-Dec 4 | Towards Congres2 1 | Sponsored by Paul McGowan
+Dec 4 | Towards Congress | Sponsored by Paul McGowan
 Dec 11 | Christmas Evening | Sponsored by Raymond Baldock
 Jan 8 | Committee Entertains | Sponsored by Elsie Miller
 Jan 15 | Travel Broadens the Mind? | Sponsored by Elizabeth Nairn
@@ -329,7 +329,7 @@ Jan 22 | Medicine on Stamps | Michael Cleary
 Jan 29 | Visit by Glasgow Philatelic Society |
 Feb 5 | European Pre-stamp Miscellany | Alan Wishart FRPSL
 Feb 12 | Competition Night |
-Feb 19 | Black Gold | Coiln Campbell
+Feb 19 | Black Gold | Colin Campbell
 Feb 26 | Philatelic Sidelines | Sponsored by Dr David A Cumming
 Mar 5 | Auction |
 Mar 12 | 70 Years a Member | Stuart R Mackenzie
@@ -379,13 +379,13 @@ Nov 22 | Safety at Sea | Mrs Sheila Sinclair
 Nov 29 | Olympic Games | Jack Murray
 Dec 6 | Concorde | Val Beeken
 Dec 13 | Christmas Evening | Sponsored by Raymond Baldock
-Jan 10 | Offfice Bearers' Delights - Committee Entertains |
+Jan 10 | Office Bearers' Delights - Committee Entertains |
 Jan 17 | A Bit of That | Dr Ian Evans
 Jan 24 | A Bit of the Other | Dr Stewart Gardiner FRPSL
 Jan 31 | The Incomplete and utter history of Classical Music | Miss Joan Trew
 Feb 7 | A Shining Inheritance | Ellen Currie
 Feb 14 | Competition Night |
-Feb 21 | Another Bloody Railway (Hong Kong Mail vie the Trans Siberian Railway) | Peter Pugh
+Feb 21 | Another Bloody Railway (Hong Kong Mail via the Trans Siberian Railway) | Peter Pugh
 Feb 28 | Everyday France | Dr David Wooley
 Mar 7 | Auction |
 Mar 14 | Visit from Largs and District Stamp Club |

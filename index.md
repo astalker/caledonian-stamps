@@ -39,11 +39,11 @@ Full details and other detail of events and news about the hobby of stamp collec
 
 The annual subscription is &pound;15 (an out of town subscription is also available). It was agreed at the 2025/2026 AGM to re-instate the subscription.
 
-How to pay your subscripion
+How to pay your subscription
 
-(1) By online transfer in sterling to the Society’s account:
+(1) By online transfer in sterling to the Society's account:
 
-Account name: THe Caledonian Philatelic Society
+Account name: The Caledonian Philatelic Society
 
 Sort Code: 82-48-08
 
@@ -51,7 +51,7 @@ Account number: 30558446
 
 The sender is responsible for any bank charges involved.
 
-Please quote your iniitial and surname as reference so we can idenify payments.
+Please quote your initial and surname as reference so we can identify payments.
 
 (2) By cheque in sterling sent to the treasurer. 
 

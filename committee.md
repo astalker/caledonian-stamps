@@ -30,7 +30,7 @@
 
 **Roll Keeper**: Alistair Burrow
 
-**Committee**: President, Secretary, Tresasurer, Vice President, Lyn Robinson, Alexander Kerr, Gordon Carroll
+**Committee**: President, Secretary, Treasurer, Vice President, Lyn Robinson, Alexander Kerr, Gordon Carroll
 
 **Examiner**: Murray Touche
 
