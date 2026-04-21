@@ -25,7 +25,7 @@ The following members of the Glasgow Caledonian Philatelic Society were adjudged
 **Bridge of Allan Trophy** - Traditional Non GB Post 1900 - George Henshilwood
 **Aerophilatelic Shield** - Aerophilately - George Henshilwood
 
-**Robson Lowe Awaerd** - Literature (Books and Catalogues) - Dr Brian Dow together with John Brown (Borders PS)
+**Robson Lowe Award** - Literature (Books and Catalogues) - Dr Brian Dow together with John Brown (Borders PS)
 
 **Dr H Hirst Bowl** - Best Presentation - George Henshilwood
 
