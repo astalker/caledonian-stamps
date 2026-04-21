@@ -12,20 +12,22 @@ Members enjoy talks, displays on different themes, visits from other philatelic 
 
 ## ASPS Stamp and Postcard Fair April 2026
 
-The Annual Congress of ASPS will be held in the Vine Centre in Dunfermline on 19th and 11th of April 2026 and will be hosted by Glasgow Caledonian Philatelic Society. After various discussions, and to broaden the appeal, there are a nunber of changes in the set up this year. 
-
-1. There will be no formal dinner on the Friday evening- this will be replaced by a buffet on the Friday evening. 
-2. The Tom Reilly presentation will take place as usual on the Friday evening.
-3. National Exhibitions (Competitions) will continue as in previous years. Presentation of Exhibition awards will follow the Tom Reilly Presentation. 
-4. There  will be no Civic Reception.
-5. The only invited speaker will be for the Tom Reilly Presentation.
-6. There will be no printed programme, instead handouts will be produced as required.
-7. The host society (GCPS) will provide Host Society displays.
-8. There will no longer be any invited society displays.
-9. The AGM of the ASPS will no longer be held during this event, thus focusing on the sale and purchase of philatelic materials – it will be held on a separate date and by video conferencing at an agreed date in May 2026.
-10. To broaden the appeal Congress will be now be promoted as a National Stamp & Postcard Fair.
+The Annual Congress of ASPS was held in the Vine Centre in Dunfermline on 19th and 11th of April 2026 and was hosted by Glasgow Caledonian Philatelic Society. 
  
-GCPS has decided not to produce a souvenir cover for the event, but an alternative cover will be produced on behalf of ASPS.
+## National Exhibition
+
+The following members of the Glasgow Caledonian Philatelic Society were adjudged as winners of the following aweards:
+
+## Scottish Thematic Rosebowl - Thematic - George Henshilwood
+## Carson Trophy - Traditional GB - George Henshilwood
+## Bridge of Allan Trophy - Traditional Non GB Post 1900 - George Henshilwood
+## Aerophilatelic Shield - Aerophilately - George Henshilwood
+## Robson Lowe Awaerd - Literature (Books and Catalogues) - Dr Brian Dow together with John Brown (Borders PS)
+## Dr H Hirst Bowl - Best Presentation - George Henshilwood
+## Robert Burns Quaich - Best Host Society Display - Andrew Black
+## Scottish Postcard Trophy - Postcards - Alexander Kerr
+
+Congratulations to the winners.
  
 ## Access to meeting room at Glasgow Stamp Shop.
 
