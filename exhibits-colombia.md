@@ -65,7 +65,3 @@
 ## Page 16
 
 ![Colombia Exhibit](images/exhibits/colombia/16.jpg)
-
-## Page 17
-
-![Colombia Exhibit](images/exhibits/colombia/17.jpg)
