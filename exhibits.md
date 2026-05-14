@@ -2,9 +2,8 @@
 
 Some introduction text
 
-### Colombia
+## Colombia - Anthony Duda
 
-#### Anthony Duda
+[![Colombia Exhibit](images/exhibits/colombia.jpg)](./exhibits-colombia)
 
-![Colombia Exhibit](images/exhibits/colombia.jpg)
-
+[View the Colombia Exhibit](./exhibits-colombia)
