@@ -1,4 +1,4 @@
-## Committee and Office Bearers of Glasgow Caledonian Philatelic Society ##
+# Committee and Office Bearers of Glasgow Caledonian Philatelic Society ##
 
 **Hon. President**:  
 
