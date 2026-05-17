@@ -2,7 +2,7 @@
 
 Listed below are a wide range of internet links to other philatelic Societies and sites where you can get further information on general and specialist aspects of stamp and postcard collecting. As well as sourcing albums and accessories. The list is only a sample of what is out there, but it gives you a start.
 
-### General UK Philatelic Internet Sites
+## General UK Philatelic Internet Sites
 
 - [ABPS (The Association of British Philatelic Societies)](https://www.abps.org.uk)
 - [Philatelic Traders Society](https://www.thepts.net)
@@ -10,14 +10,14 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - [Royal Mail](https://www.royalmail.com/portal/stamps/)
 - [Stanley Gibbons](https://www.stanleygibbons.com)
 
-### Scottish Internet Sites
+## Scottish Internet Sites
 
 - [Association of Scottish Philatelic Societies - Includes links to other Scottish Philatelic Societies](https://www.scottishphilately.co.uk/)
 - [Glasgow Stamp Shop](https://www.Glasgowstampshop.co.uk)
 - [Robert Murray Stamp Shop](https://www.stamp-shop.com)
 - [Stenlake Publishing](https://www.stenlake.co.uk)
 
-### Specialist Societies and Sites of General Interest
+## Specialist Societies and Sites of General Interest
 
 - [Collectors Club of Great Britain](https://www.collectors-club-of-great-britain.co.uk)
 - [New Zealand Society of Great Britain](https://www.nzsgb.org.uk)
@@ -39,7 +39,7 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - [Netherlands Philately](https://www.netpha.nl)
 - [Scandinavia Philatelic Society](https://scandps.org.uk)
  
-### Stamp Dealers - non Scottish
+## Stamp Dealers - non Scottish
 
 - [American Stamp Dealers Association](https://www.americanstampdealer.com)
 - [Canadian Stamp Dealers Association](https://www.csdaonline.com/)
@@ -47,42 +47,42 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - [International Federation of Stamp Dealers Association](https://www.ifsda.org/)
 - [Albany Stamps - Albany Stamps supplies all types of Great Britain stamps with a choice of first day covers, presentation packs, single stamps and sets, booklets and a lot more.](https://www.albanystamps.co.uk)
 
-### Museums
+## Museums
 
 - [British Library - see the Tapling Collection and many other British Library Collections](https://thedigitalphilatelist.com/british-librarys-philatelic-collections-tapling-collection)
 - [The Postal Museum](https://www.postalmuseum.org/)
 
-### Thematics
+## Thematics
 
 - [British Thematic Association](https://www.britishthematic.org.uk/)
 - [Glasgow Thematic Society](https://www.glasgowthematicsociety.org.uk)
 - [American Topical Association](https://www.americantopicalassn.org/)
 - 
-### First Day Covers
+## First Day Covers
 
 - [Buckingham Covers](https://www.buckinghamcovers.com)
 - [Benham](https://www.benham.co.uk/)
 - [British First Day Covers](https://www.bfdc.co.uk/)
 - [Rush Stamps](https://www.rushstamps.co.uk/)
 
-### Magazines
+## Magazines
 
 - [Stamp Magazine](https://www.stampmagazine.co.uk/)
 - [Stanley Gibbons Stamp Monthly](https://www.gibbonsstampmonthly.com/)
 - [Linn's Stamp News - world's largest weekly stamp newspaper - loads of information](https://www.linns.com/)
 
-### Cinderella Stamps
+## Cinderella Stamps
 
 - [Cinderella Stamp Club - &quot;local stamps, telegraph stamps, railway stamps, revenues, fiscals, forgeries, bogus and phantom issues, Christmas, Red Cross, TB and other charity seals, registration labels, advertisement and exhibition labels and many other items&quot;](https://www.cinderellastampclub.com/)
 
-### Accessories
+## Accessories
 
 - [Stanley Gibbons](https://www.stanleygibbons.com/)
 - [Showgard Accessories](https://www.showgard.com/)
 - [Lighthouse Accessories](https://www.leuchtturm.com/)
 - [Dauwalders of Surrey](https://www.dauwalders.co.uk)
 
-### Albums
+## Albums
 
 - [Britannia Albums](https://www.britanniaalbums.com/)
 - [Stanley Gibbons](https://www.stanleygibbons.com/)
@@ -92,10 +92,10 @@ Listed below are a wide range of internet links to other philatelic Societies an
 - [Palo Albums](https://paloalbums.com/)
 - [Michael Kay](https://michaelkay.co.uk//)
 
-### Postmarks
+## Postmarks
 
 - [British Postmark Society](https://www.britishpostmarksociety.org.uk/)
 
-### General Reference
+## General Reference
 
 - [Collectors Club of Chicago - Reference site with questions and answers. Highly recommended](https://www.collectorsclubchicago.org)
