@@ -4,7 +4,7 @@
 
 **Hon. Vice Presidents**
 
- Mrs. M. Morris, DTP, FRPSL, J Crawford
+J Crawford
 
 **President**: **Anthony Duda**
 
