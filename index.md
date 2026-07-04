@@ -2,11 +2,21 @@
 
 Welcome to the **Glasgow Caledonian Philatelic Society** promoting stamp collecting and philately in the Glasgow area since 1906.
 
-At the 2025 AGMs of both Glasgow and Caledonian Philatelic Societies the merger to form **Glasgow Caledonian Phiatelic Society** was unanimously agreed. 
+## A NEW MEETING VENUE ##
 
-Meetings for session 2026/2027 will be in a dedicated room co-located with the Glasgow Stamp Shop at the top of West Nile Street in Glasgow. Further details will be provided when the room has been set up for our use. This provides us with a Centralised location in Glasgow and the room can be set up in a semi permanent manner. Meetings will still alternate between Thursday afternoon meetings and Thursday evening meetings as detailed in the Meetings page. Details of access wil be given in the Location page of the web site and as described below.
+The new meeting venue is almost ready for use and will be used for the Summer Meeting on 23rd July 2026. Meetings will be in a dedicated room co-located with the Glasgow Stamp Shop at the top of West Nile Street in Glasgow.
 
-Afternoon meetings will still be at 1.30pm but the evening meetings will be held at 7pm.
+The location is:
+
+**8 Victoria Chambers,**
+**142 West Nile Street,**
+**G1 2RD**
+
+The romm is on the **first floor** and there is a **lift from the entrance**.  **You will need to use the buzzer to gain access to the building** when you arrive.  The Glasgow Stamp Shop's new premises are on the same floor at the top of the stairs at the front of the building.
+
+This provides us with a Centralised location in Glasgow and the room can be set up in a semi permanent manner. Meetings will still alternate between Thursday afternoon meetings and Thursday evening meetings as detailed in the Meetings page. 
+
+**Afternoon meetings will still be at 1.30pm** but the **evening meetings will be held at 7pm.**
 
 Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, annual competitions and the ever popular auction 
 
