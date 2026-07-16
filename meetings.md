@@ -27,7 +27,7 @@ Date  | Subject | Displayer | Timing of meetings |
 12 November | GB Line Engraved and Postal History | Robert Watt | Evening
 26 November | Hungary | Sandy Kerr | Afternoon
 3 December |TBA | TBA | Afternoon
-10  April |December | Bourse | | Evening
+10 December | Bourse | | Evening
 17 December | Christmas Meeting (Alphabet Lottery) ||Afternoon
 7 January | Trinidad | Susan Taylor | Afternoon
 14 January | TBA | George Henshilwood | Evening
