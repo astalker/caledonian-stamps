@@ -8,9 +8,9 @@ The syllabus for 2026 - 2027 is still evolving and will be updated when availabl
 
 Summer meetings will be in the new venue alongside the Glasgow Stamp Shop on the following dates:
 
-**23rd July 2026** - **Tristan da Cunha Potato Stamps** by Martin Crawford - **A Gold Winning** Exhibit. Martin and Marilyn are special geusts from South Africa.
+**23rd July 2026** - **Tristan da Cunha Potato Stamps** by Martin and Marilyn Crawford and Alistair Burrows- **A Gold Winning** Exhibit. Martin and Marilyn are special geusts from South Africa.
 
-**13th August 2026** - Forgeries seminar - powerpoint display 
+**13th August 2026** - Don't be Feart of Forgeries, they're fun - powerpoint display 
 
 **10th September 2026** - John Gallacher with a Philatelic Website Talk - powerpoint display
 
