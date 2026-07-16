@@ -32,7 +32,7 @@ Date  | Subject | Displayer | Timing of meetings |
 7 January | Trinidad | Susan Taylor | Afternoon
 14 January | TBA | George Henshilwood | Evening
 21 January | New Zealand and Samoa | Paul Woods | Afternoon
-4 February | Stamps of South Georgia/FID and Britiash Antartic Territory. Usage of GB 2d Blue | Norman Kelso | Afternoon Evening
+4 February | Stamps of South Georgia/FID and Britiash Antartic Territory. Usage of GB 2d Blue | Norman Kelso | Afternoon
 11 February | Competition Night | |Evening
 25 February | TBA | TBA | Afternoon
 4 March | Stamps for Scotland | Robert Murray | Afternoon
