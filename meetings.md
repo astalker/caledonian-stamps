@@ -28,7 +28,7 @@ Date  | Subject | Displayer | Timing of meetings |
 26 November | Hungary | Sandy Kerr | Afternoon
 3 December |TBA | TBA | Afternoon
 10  April |December | Bourse | | Evening
-17 December | Christmas Meeting (Alphabet Lottery) | Afternoon
+17 December | Christmas Meeting (Alphabet Lottery) ||Afternoon
 7 January | Trinidad | Susan Taylor | Afternoon
 14 January | TBA | George Henshilwood | Evening
 21 January | New Zealand and Samoa | Paul Woods | Afternoon
