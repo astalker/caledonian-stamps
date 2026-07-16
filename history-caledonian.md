@@ -20,7 +20,7 @@ Further detail is given in the book, entitled "The Caledonian Philatelic Society
 
 During the year the Society also organised the Philatelic Congress of GB in Renfrew in July and gave an invited display to the Royal Philatelic Society London in November 2006. Two special evenings were included in the Syllabus when Past Presidents gave short displays to the members.
 
-### Caledonian Philatelic Society Centenary 1906 — 2006 Glasgow
+### Caledonian Philatelic Society Centenary 1906 — 2006
 
 City of leisure and learning, optimism, wealth, power, spirit and warmth.
 
