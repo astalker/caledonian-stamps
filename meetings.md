@@ -24,7 +24,7 @@ Date  | Subject | Displayer | Timing of meetings |
 15 October | TBA | Ian Mason | Evening
 22 October | Dundee Postal History | David Miller |Afternoon
 5 November | Spanish Civil War/Cinderellas | Bob Adams | Afternoon
-12 November | GB Line Engraved and Postal History | Evening
+12 November | GB Line Engraved and Postal History | Robert Watt | Evening
 26 November | Hungary | Sandy Kerr | Afternoon
 3 December |TBA | TBA | Afternoon
 10  April |December | Bourse | | Evening
