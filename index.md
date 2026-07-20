@@ -4,9 +4,11 @@ Welcome to the **Glasgow Caledonian Philatelic Society** promoting stamp collect
 
 ## A NEW MEETING VENUE ##
 
-The new meeting venue is almost ready for use and will be used for the Summer Meeting on 23rd July 2026. Meetings will be in a dedicated room co-located with the Glasgow Stamp Shop at the top of West Nile Street in Glasgow.
+The new meeting venue will be used for the first Summer Meeting on 23rd July 2026. Meetings will be in a dedicated room co-located with the Glasgow Stamp Shop at the top of West Nile Street in Glasgow.
 
 The location is:
+
+**Suite F,**
 
 **8 Victoria Chambers,**
 
@@ -51,9 +53,9 @@ Congratulations to the winners.
  
 ## Access to meeting room at Glasgow Stamp Shop.
 
-The Glasgow Stamp Shop is in process of re-locating from its current premises to one next door and further deatils will be provided. It will still be at the top of West Nile Street in glasgow. Being in the centre of Glasgow there is easy access from the nearby main rialway stations (Queen Street and Central Station) as well as the glasgow Underground at Buchanan Street. On street parking is available in the evnings but is very limited. It is advised to use the car parks at the Concert Hall Multi Storey Car Park or the Buchanan Galleries Multi Storey Car Park. Freuet busses travel to the centre of Glasgow and the Buchanan Bus Station is nearby.  All the car parks and bus station are a short walk to the Glasgow Stamp Shop.
+The Glasgow Stamp Shop is now at 142 West Nile Street, slightly further up West Nile Street from its previuos location. Being in the centre of Glasgow there is easy access from the nearby main rialway stations (Queen Street and Central Station) as well as the Glasgow Underground at Buchanan Street. On street parking is available in the evnings but is very limited (but still free after 6pm). It is advised to use the car parks at the Concert Hall Multi Storey Car Park or the Buchanan Galleries Multi Storey Car Park. Frequent busses travel to the centre of Glasgow and the Buchanan Bus Station is nearby.  All the car parks and bus station are a short walk to the Glasgow Stamp Shop.
 
-There is a lift as the room is upstairs.
+There is a lift as the room is on the first floor upstairs.
 
 Full details and other detail of events and news about the hobby of stamp collecting in Scotland can be found on the [ASPS Web Site](https://www.scottishphilately.co.uk).
 
