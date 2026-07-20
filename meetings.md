@@ -4,7 +4,7 @@
 
 ## Current Syllabus
 
-The syllabus for 2026 - 2027 is still evolving and will be updated when available.
+The syllabus for 2026 - 2027 is as shown below. There is a mix of afternoon and evening meetings as in previous years. Guest speakers are in afternoon sessions and evening sessions are largely devoted to members displays, competitions, auction and other society events.
 
 Summer meetings will be in the new venue alongside the Glasgow Stamp Shop on the following dates:
 
