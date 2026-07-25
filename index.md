@@ -8,7 +8,7 @@ The new meeting venue will be used for the first Summer Meeting on 23rd July 202
 
 The location is:
 
-**Suite F,**
+**Suite E/F,**
 
 **8 Victoria Chambers,**
 
