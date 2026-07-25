@@ -16,6 +16,6 @@ The Glasgow Stamp Shop's new premises are on the same floor at the top of the st
 
 Afternoon meetings will still be at 1.30pm but the evening meetings will be held at 7pm
 
-
+The Glasgow Stamp Shop is now at 142 West Nile Street, slightly further up West Nile Street from its previous location. Being in the centre of Glasgow there is easy access from the nearby main rialway stations (Queen Street and Central Station) as well as the Glasgow Underground at Buchanan Street. On street parking is available in the evnings but is very limited (but still free after 6pm). It is advised to use the car parks at the Concert Hall Multi Storey Car Park or the Buchanan Galleries Multi Storey Car Park. Frequent busses travel to the centre of Glasgow and the Buchanan Bus Station is nearby. All the car parks and bus station are a short walk to the Glasgow Stamp Shop.
 
 
