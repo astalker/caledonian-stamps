@@ -122,7 +122,6 @@ Presented to the Glasgow philatelic Society by Margaret Morris in 1998
 Awarded for Thematic Entries
 Year | Winner
 ---- |-----
-
 1998 | A J Lacey
 1999 | No Award
 2000 | No Award
