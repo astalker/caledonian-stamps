@@ -32,7 +32,7 @@ Date    | President
 1945-46	|	Rev Hassal Hanmer MA BD
 1946-47 | Rev Hassal Hanmer
 1947-48	| Rev Hassal Hanmer
-1948-49	| W L Mortpn
+1948-49	| W L Morton
 1949-50	| Rev G Milne Ewan FRPSL
 1950-51	| A McConnell
 1951-52	|	A McConnell
