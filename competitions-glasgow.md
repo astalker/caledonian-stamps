@@ -175,7 +175,7 @@ Year | Winner
 
 ## Junior Thematic Cup
 
-Presented to the Glasgow philatelic Society by A;ex McConnell in 1968
+Presented to the Glasgow Philatelic Society by Alex McConnell in 1968
 
 Awarded for Thematic Entries
 
