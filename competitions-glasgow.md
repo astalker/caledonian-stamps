@@ -1,4 +1,4 @@
-# Glasgow Philatelic Competitions
+# Glasgow Philatelic Society Competitions
 
 [Back to Glasgow Philatelic History](./history-glasgow)
 
