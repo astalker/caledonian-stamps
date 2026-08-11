@@ -2,10 +2,6 @@
 
 [Back to Glasgow Philatelic History](./history-glasgow)
 
-## 1971 - 2019
-
-...
-
 ## Jubilee Shield
 
 Awarded for Philatelic entries.
