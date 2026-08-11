@@ -30,6 +30,7 @@ Date    | President
 
 No Meetings in from April 1942 to August 1945 due to War
 
+------- | -------
 1945-46	|	Rev Hassal Hanmer MA BD
 1946-47 | Rev Hassal Hanmer
 1947-48	| Rev Hassal Hanmer
