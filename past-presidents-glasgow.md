@@ -27,11 +27,7 @@ Date    | President
 1939-40	| D E Conning
 1940-41	| E Lauder
 1941-42	| J Motion
-
-No Meetings in from April 1942 to August 1945 due to War
-
-------- | -------
-
+1942-45 | No Meetings in from April 1942 to August 1945 due to War
 1945-46	|	Rev Hassal Hanmer MA BD
 1946-47 | Rev Hassal Hanmer
 1947-48	| Rev Hassal Hanmer
