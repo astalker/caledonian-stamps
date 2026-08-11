@@ -35,8 +35,8 @@ Year | Winner
 1995 | D Arthur
 1996 | No Award
 1997 | No Award
-1998 | M I Morris
-1999 | M I Morris
+1998 | Mrs M I Morris
+1999 | Mrs M I Morris
 2000 |-No Award
 2001 | No Award
 2002 | No Award
@@ -70,7 +70,7 @@ Year | Winner
 1973 | J Millar
 1974 | T Cowall
 1975 | T G R Erskine
-1976 | M I Morris
+1976 | Mrs M I Morris
 1977 | G McKenzie
 1978 | D J L Murray
 1979 | G McKenzie
@@ -91,7 +91,7 @@ Year | Winner
 1994 | G McKenzie
 1995 | G McKenzie
 1996 | No Award
-1997 | M I Morris
+1997 | Mrs M I Morris
 1998 | No Award
 1999 | No Award
 2000 | No Award
@@ -130,10 +130,10 @@ Year | Winner
 2002 | E Wood
 2003 | B Allan
 2004 | B Allan
-2005 | M I Morris
+2005 | Mrs M I Morris
 2006 | E Wood
 2007 | E Wood
-2008 | M I Morris
+2008 | Mrs M I Morris
 2009 | E Miller
 2010 | J E McAlpine
 2011 | J E McAlpine
@@ -145,3 +145,51 @@ Year | Winner
 2017 | G Henshilwood
 2018 | G Henshilwood
 2019 | G Henshilwood
+
+**In the 1960s and 1970s there were two Junior Trophies awarded.**
+
+## Junior Cup
+
+Presented to the Glasgow philatelic Society by Edwin Morris in 1963
+
+Awarded for Philatelic Entries
+
+Year | Winner
+---- |-----
+1964 | A Bell 
+1965 | D W Ferguson
+1966 | K Davidson
+1967 | T Callendar 
+1968 | N Reilly
+1969 | No Award 
+1970 | No Award
+1971 | K McGowan
+1972 | N Spiers
+1973 | M Reid
+1974 | H M Reid
+1975 | M Reid
+1976 | J D McVitie
+1977 | P McConnell
+1978 | No Award
+1979 | J Smith
+
+## Junior Thematic Cup
+
+Presented to the Glasgow philatelic Society by A;ex McConnell in 1968
+
+Awarded for Thematic Entries
+
+Year | Winner
+---- |-----
+1968 | N Reilly
+1969 | N Reilly 
+1970 | No Award
+1971 | W Simpson
+1972 | No Award
+1973 | Miss J McKenzie
+1974 | Miss J McKenzie
+1975 | No Award
+1976 | No Award
+1977 | M P Colpi
+1978 | No Award
+1979 | M P Colpi
