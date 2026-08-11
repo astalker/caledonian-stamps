@@ -2,9 +2,10 @@
 
 [Back to Glasgow Philatelic Society History](./history-glasgow)
 
+1st 4 meetings were chaired by committee
+
 Date    | President
 ------- | -------
-1st 4 meetings were chaired by committee
 1920-21	| F H Geitner
 1921-22 | F H Geitner
 1922-23 | R Duncan
