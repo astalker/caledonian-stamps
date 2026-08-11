@@ -37,7 +37,7 @@ Year | Winner
 1997 | No Award
 1998 | Mrs M I Morris
 1999 | Mrs M I Morris
-2000 |-No Award
+2000 | No Award
 2001 | No Award
 2002 | No Award
 2003 | R Tough
@@ -82,7 +82,7 @@ Year | Winner
 1985 | G McKenzie
 1986 | G McKenzie
 1987 | I M Hamilton
-1988-| K G Adams
+1988 | K G Adams
 1989 | E Morris
 1990 | C Y Reid
 1991 | No Award
