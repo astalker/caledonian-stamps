@@ -52,7 +52,7 @@ Date    | President
 1965-66	| S R MacKenzie FRPSL
 1966-67	|	S F Gilmour
 1967-68	| J Fairlie Campbell
-1968-69	| Harry  Sennett
+1968-69	| Harry Sennett
 1969-70	| T Cowell
 1970-71	|	G McKenzie
 1971-72	|	Gilbert May
@@ -78,16 +78,17 @@ Date    | President
 1991-92	| C Y Reid
 1992-93	| J Morgan
 1993-94	| N Coutts
-1994-95	| G McKemzie
+1994-95	| George McKemzie
 1995-96	| A J Southwood
 1996-97	| Bruce Allan	
 1997-98	| D Cornwell
 1998-99	| A Lacey
-1999-00	| J Moffat
-2000-01	| K D Morrison
+1999-00	| Jim Moffat
+2000-01	| Ken D Morrison
 2001-02	| James Mackay
 2002-03	| Howard Gordon
 2003-04	| Richard Tough
 2004-05	|	Keith Herbertson
 2005-06	| James E MacAlpine
-
+2003-07	| Frank Barron
+2007-08	| James Evers
