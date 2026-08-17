@@ -10,11 +10,11 @@ The location is:
 
 **Suite E/F,**
 
-**8 Victoria Chambers,**
+**Victoria Chambers,**
 
 **142 West Nile Street,**
 
-**G1 2RD**
+**G1 2RQ**
 
 The room is on the **first floor** and there is a **lift from the entrance**.  **You will need to use the buzzer to gain access to the building** when you arrive.  
 
