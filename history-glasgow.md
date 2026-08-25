@@ -11,4 +11,13 @@ In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W.
 
 ## Anniversary Meetings
 
-The **55th Anniversary** of the Society was celebrated on 15th March 1975 and a commemorative coer was produced.
+The **Golden Jubilee** was celebrated in 1950. A special postmark was produced and used on a commemorative cover celebrating the occasion and on a SCOPHILEX Exhibition Cover. Both covers shown also have a cachet commemorating the bicentennial of the "discovery" of Australia by Captain Cook.
+
+The **55th Anniversary** was celebrated on 15th March 1975 and a commemorative cover was produced.
+
+The **1000th meeting** of the Society was held on 25th March 1975 and 16 past presidents gave displays. The cover is signed by all of the past presidents as well as the principal office bearers of the society in 1975.
+
+For the **75th anniversary** in 1995, the Society hosted the annual Congress of ASPS. As this coincided with the 125th anniversary of the introduction of the Post Card a special card, based on the original card from 1870, was used to invite attendees to the opening ceremony on 18th March. 
+
+The **1500th meeting** took place on 14th March 1995. A second card with a replica of the Post Office Notice introducing Post Cards was produced to be used at the ASPS Congress in 1995.
+
