@@ -11,7 +11,8 @@
 1. [Palace of Art 1974](#palace-of-art-1974)
 1. [Museum of Transport](#museum-of-transport)
 1. [Pride of the Clyde](#pride-of-the-clyde)
-
+1. [Hosting of ASPS Congress](#hosting-of ASPS-Congress)
+   
 ## The Glasgow Philatelic Society Crest
 
 In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W. Walker, produced a design that remained in use until 2025. It has been largely adopted, with some minor modifications by Glasgow Caledonian Philatelic Society. It is heavily based on the Crest for the City of Glasgow. The two scans show the Glasgow City crest as used to promote the Philatelic Congress in 1924 and a coloured in depiction of the Crest as used by Glasgow Philatelic Society. The similarity is obvious.
@@ -89,3 +90,11 @@ Another exhibition relating to transport and the postal systems, entitled “The
 ## Pride of the Clyde
 
 As part of the year long celebrations under the general title of **“THE PRIDE OF THE CLYDE CELEBRATIONS”**. Glasgow and surrounding area Philatelic Associations mounted an exhibition in the SECC form 12 – 24 September 1983. Focus was on telling the story of the river in all its aspects including people, wildlife, work and play, sport, arts, industry and transport. There were associated philatelic exhibits on the famous Madeleine Smith trial, Coats and Clydebank and its association with shipbuilding. 
+
+##Hosting of ASPS Congress
+
+On several occasions the Glasgow Philatelic Society hosted the annual congress of the Association. The Society was hosts in 1933, 1939, 1952, 1966, 1970 in association with Scophilex, 1980, 1990 and in 1995. Souvenir covers were produced from 1966 Congress onwards.  
+
+The 1980 Cover showed two Veteran Morris cars that took part in the Veteran Car run from Glasgow to Stirling.
+
+in 1995 Two Postmarks were used. One was based on the Coat of Arms Old Gas Lamp in Cathedral Square in Glasgow to celebrate the 75th anniversary of Glasgow Philatelic Society. The second one depicted the Wallace Monument with an insert in the ASPS Congress Cover giving historical details of William Wallace and the Monument.
