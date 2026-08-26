@@ -11,7 +11,7 @@
 1. [Palace of Art 1974](#palace-of-art-1974)
 1. [Museum of Transport](#museum-of-transport)
 1. [Pride of the Clyde](#pride-of-the-clyde)
-1. [Hosting of ASPS Congress](#hosting-of ASPS-Congress)
+1. [Hosting of ASPS Congress](#hosting-of asps-congress)
    
 ## The Glasgow Philatelic Society Crest
 
