@@ -27,7 +27,7 @@ The **1500th meeting** took place on 14th March 1995. A second card with a repli
 
 In the halycon days when there were lots of members there was an intention to run annual exhibitions. Covers from the 1972 and 1973 exhibitions are shown. They were held in the People's Palace. The 1972 cover depicts the Glasgow PS Crest and the 1973 cover shows some of the Society's trophies. It appears that this did not last long, although Glasgow PS did participate in several exhibitions in succeeding years.
 
-## Clyde '76 and Clyde '77
+## Clyde'76 and Clyde'77
 
 Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1976 it was the Bi-centennial of American Independence and Glasgow Philatelic Society provided an exhibition telling the story of Trans-Atlantic Mail Transport, entitled “ACROSS THE ATLANTIC”, in the Glasgow Museum of Transport from 4th to 30th May 1976.
 A cover “Posted in the Oldest "Pillar Box in Scotland” has a special cachet commemorating the 40th anniversary of the maiden voyage of “RMS Queen Mary” and labels produced for the exhibition.
