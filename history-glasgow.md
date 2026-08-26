@@ -43,9 +43,9 @@ As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Qu
 
 There were several cancellations produced including one with a cachet to commemorate the visit of Princess Margaret.
 A jumbo card illustrated the various postmarks used in Glasgow over the years:
-1First Glasgow Woodcut
-2 Glasgow Crown Ship Letter
-3. Receiving house – Glasgow Exchange
+### 1  First Glasgow Woodcut
+###2  Glasgow Crown Ship Letter
+###3. Receiving house – Glasgow Exchange
 4. Glasgow “Roller”
 5. Duplex Cancellation
 6. Scots Local Cancellation
