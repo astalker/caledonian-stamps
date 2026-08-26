@@ -4,6 +4,7 @@
 
 1. [The Glasgow Philatelic Society Crest](the-glasgow-philatelic-society-crest)
 1. [Anniversary meetings](#anniversary-meetings)
+1. [Annual Exhibitions](#annual-exhibitions)
 
 ## The Glasgow Philatelic Society Crest
 
@@ -21,3 +22,6 @@ For the **75th anniversary** in 1995, the Society hosted the annual Congress of 
 
 The **1500th meeting** took place on 14th March 1995. A second card with a replica of the Post Office Notice introducing Post Cards was produced to be used at the ASPS Congress in 1995.
 
+## Annual Exhibitions
+
+In the halycon days when there were lots of members there was an intention to run annual exhibitions. Covers from the 1972 and 1973 exhibitions are shown. They were held in the People's Palace. The 1972 cover depicts the Glasgow PS Crest and the 1973 cover shows tsome of the Society's trophies. It appears that this did not last long, although Glasgow PS did participate in several exhibitions in succeeding years.
