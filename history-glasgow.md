@@ -59,9 +59,9 @@ Volume 124 no. 9 of Stamp Collecting Weekly on April 24th 1975 was devoted to Gl
 
 ## SCOPHILEX 1970
 
-Glasgow Philatelic Society participated in two of the great Scottish Exhibitions, SCOTEX 1962 and Scophilex 1970. There are always opportunities to have special commemorations as these two covers illustrate:
+1) Glasgow Philatelic Society participated in two of the great Scottish Exhibitions, SCOTEX 1962 and Scophilex 1970. There are always opportunities to have special commemorations as these two covers illustrate:
 
-Additional cachet for Bicentenary of Captain Cook’s discovery of the east coast of Australia on 2nd day of exhibition.
+2) Additional cachet for Bicentenary of Captain Cook’s discovery of the east coast of Australia on 2nd day of exhibition.
   
 Additional cachet on 3rd day of exhibition for Scotland v England football match at Hampden Park – the match ended in a 0-0 draw.
 
