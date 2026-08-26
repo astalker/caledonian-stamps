@@ -6,8 +6,12 @@
 1. [Anniversary meetings](#anniversary-meetings)
 1. [Annual Exhibitions](#annual-exhibitions)
 1. [Clyde'76 and Clyde'77](#clyde'76-and-clyde'77)
- 1. [Glasgow 800](#glasgow-800)
-      
+1. [Glasgow 800](#glasgow-800)
+1. [Scophilex 1970](#scophilex-1970)
+1  [Palace of Art 1974](#palace-of-art-1974)
+1. [Museum of Transport](#museum-of-transport)
+1. [Pride of the Clyde](#pride-of-the-clyde)
+
 ## The Glasgow Philatelic Society Crest
 
 In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W. Walker, produced a design that remained in use until 2025. It has been largely adopted, with some minor modifications by Glasgow Caledonian Philatelic Society. It is heavily based on the Crest for the City of Glasgow. The two scans show the Glasgow City crest as used to promote the Philatelic Congress in 1924 and a coloured in depiction of the Crest as used by Glasgow Philatelic Society. The similarity is obvious.
@@ -53,4 +57,34 @@ A jumbo card illustrated the various postmarks used in Glasgow over the years:
 Two sheets of Commemorative labels were on sale at the exhibition. One showing significant aspects of each century from the 12th century to the 29th century and the second sheet showing the Royal Mail Coach from 1940. The Mail Coach led the Lord Provost’s procession from Kelvin Way to Glasgow Green via George Square. The design of the cover is based on the 1890 Jubilee of Penny Postage Envelope. 
 Volume 124 no. 9 of Stamp Collecting Weekly on April 24th 1975 was devoted to Glasgow 800 with several articles on postal history of Glasgow and the 1000th meeting of the Society.
 
+## SCOPHILEX 1970
 
+Glasgow Philatelic Society participated in two of the great Scottish Exhibitions, SCOTEX 1962 and Scophilex 1970. There are always opportunities to have special commemorations as these two covers illustrate:
+
+1.	Additional cachet for Bicentenary of Captain Cook’s discovery of the east coast of Australia on 2nd day of exhibition.
+  
+2.	Additional cachet on 3rd day of exhibition for Scotland v England football match at Hampden Park – the match ended in a 0-0 draw.
+
+## Palace of Art 1974
+
+An exhibition in conjunction with the Glasgow and West of Scotland Horticultural Society was held in the Palace of Art in Bellahouston on September 10th and 11th 1974. The cachet of Robert Brydone commemorates Mrs Robert Brydone after whom a clematis is named.
+
+## Museum of Transport
+
+The museum of Transport was always a good place to holsd exhibitions as their is a common link between transport and the mail.
+
+**Transport, The Philatelic Movement**
+
+On 6th and 7th June 1988 an exhibition was held in the Museum of Transport when it relocated to the Kelvin Hall The cover is signed by Mr A Smith (Keeper of the Museum) and C Clayson (Assistant Keeper). The cover is a Benham Silk with a Silk showing the iconic tramcars in the Glasgow livery.
+
+**Glasgow Garden Festival 1988**.
+
+In conjunction with the **Garden Festival** Glasgow Philatelic Society mounted an exhibition in the Museum of Transport as part of the Planet Earth exhibition. The cover is signed by George Chesworth the Director of the Garden Festival. 
+
+**Stampway to the World**
+
+Another exhibition relating to transport and the postal systems, entitled “The Post in Scotland”, was held at the Museum of Transport in October 1990.
+
+##Pride of the Clyde
+
+As part of the year long celebrations under the general title of **“THE PRIDE OF THE CLYDE CELEBRATIONS”**. Glasgow and surrounding area Philatelic Associations mounted an exhibition in the SECC form 12 – 24 September 1983. Focus was on telling the story of the river in all its aspects including people, wildlife, work and play, sport, arts, industry and transport. There were associated philatelic exhibits on the famous Madeleine Smith trial, Coats and Clydebank and its association with shipbuilding. 
