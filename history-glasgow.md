@@ -57,11 +57,12 @@ A jumbo card illustrated the various postmarks used in Glasgow over the years:
 Two sheets of Commemorative labels were on sale at the exhibition. One showing significant aspects of each century from the 12th century to the 29th century and the second sheet showing the Royal Mail Coach from 1940. The Mail Coach led the Lord Provost’s procession from Kelvin Way to Glasgow Green via George Square. The design of the cover is based on the 1890 Jubilee of Penny Postage Envelope. 
 Volume 124 no. 9 of Stamp Collecting Weekly on April 24th 1975 was devoted to Glasgow 800 with several articles on postal history of Glasgow and the 1000th meeting of the Society.
 
+
 ## SCOPHILEX 1970
 
-1) Glasgow Philatelic Society participated in two of the great Scottish Exhibitions, SCOTEX 1962 and Scophilex 1970. There are always opportunities to have special commemorations as these two covers illustrate:
+1. Glasgow Philatelic Society participated in two of the great Scottish Exhibitions, SCOTEX 1962 and Scophilex 1970. There are always opportunities to have special commemorations as these two covers illustrate:
 
-2) Additional cachet for Bicentenary of Captain Cook’s discovery of the east coast of Australia on 2nd day of exhibition.
+2. Additional cachet for Bicentenary of Captain Cook’s discovery of the east coast of Australia on 2nd day of exhibition.
   
 Additional cachet on 3rd day of exhibition for Scotland v England football match at Hampden Park – the match ended in a 0-0 draw.
 
