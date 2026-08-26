@@ -5,7 +5,7 @@
 1. [The Glasgow Philatelic Society Crest](the-glasgow-philatelic-society-crest)
 1. [Anniversary meetings](#anniversary-meetings)
 1. [Annual Exhibitions](#annual-exhibitions)
-1. [Clyde '76 and Clyde '77](#clyde-'76-and-clyde-'77)
+1. [Clyde'76 and Clyde'77](#clyde'76-and-clyde'77)
    
 ## The Glasgow Philatelic Society Crest
 
