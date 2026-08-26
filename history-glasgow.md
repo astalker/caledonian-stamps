@@ -91,7 +91,7 @@ Another exhibition relating to transport and the postal systems, entitled “The
 
 As part of the year long celebrations under the general title of **“THE PRIDE OF THE CLYDE CELEBRATIONS”**. Glasgow and surrounding area Philatelic Associations mounted an exhibition in the SECC form 12 – 24 September 1983. Focus was on telling the story of the river in all its aspects including people, wildlife, work and play, sport, arts, industry and transport. There were associated philatelic exhibits on the famous Madeleine Smith trial, Coats and Clydebank and its association with shipbuilding. 
 
-##Hosting of ASPS Congress
+## Hosting of ASPS Congress
 
 On several occasions the Glasgow Philatelic Society hosted the annual congress of the Association. The Society was hosts in 1933, 1939, 1952, 1966, 1970 in association with Scophilex, 1980, 1990 and in 1995. Souvenir covers were produced from 1966 Congress onwards.  
 
