@@ -7,8 +7,8 @@
 1. [Annual Exhibitions](#annual-exhibitions)
 1. [Clyde'76 and Clyde'77](#clyde'76-and-clyde'77)
 1. [Glasgow 800](#glasgow-800)
-1. [Scophilex 1970](#scophilex-1970) 
-2  [Palace of Art 1974](#palace-of-art-1974)
+1. [Scophilex 1970](#scophilex-1970)
+1. [Palace of Art 1974](#palace-of-art-1974)
 1. [Museum of Transport](#museum-of-transport)
 1. [Pride of the Clyde](#pride-of-the-clyde)
 
