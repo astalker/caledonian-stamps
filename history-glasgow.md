@@ -1,6 +1,6 @@
 # Glasgow Philatelic Society History
 
-[Back to History](./history) / [Previous Meetings](./previous-meetings-glasgow) / [Past Presidents](./past-presidents-glasgow) / [Competitions](./competitions-glasgow)
+[Back to History](./history) / [Previous Meetings](./previous-meetings-glasgow) / [Past Presidents](./past-presidents-glasgow) / [Competitions](./competitions-glasgow) / [Polish-and-Danish-Connections)
 
 1. [The Glasgow Philatelic Society Crest](the-glasgow-philatelic-society-crest)
 1. [Anniversary meetings](#anniversary-meetings)
