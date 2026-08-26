@@ -5,7 +5,8 @@
 1. [The Glasgow Philatelic Society Crest](the-glasgow-philatelic-society-crest)
 1. [Anniversary meetings](#anniversary-meetings)
 1. [Annual Exhibitions](#annual-exhibitions)
-
+1. [Clyde '76 and Clyde '77](#clyde-'76-and-clyde-'77)
+   
 ## The Glasgow Philatelic Society Crest
 
 In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W. Walker, produced a design that remained in use until 2025. It has been largely adopted, with some minor modifications by Glasgow Caledonian Philatelic Society. It is heavily based on the Crest for the City of Glasgow. The two scans show the Glasgow City crest as used to promote the Philatelic Congress in 1924 and a coloured in depiction of the Crest as used by Glasgow Philatelic Society. The similarity is obvious.
@@ -24,4 +25,11 @@ The **1500th meeting** took place on 14th March 1995. A second card with a repli
 
 ## Annual Exhibitions
 
-In the halycon days when there were lots of members there was an intention to run annual exhibitions. Covers from the 1972 and 1973 exhibitions are shown. They were held in the People's Palace. The 1972 cover depicts the Glasgow PS Crest and the 1973 cover shows tsome of the Society's trophies. It appears that this did not last long, although Glasgow PS did participate in several exhibitions in succeeding years.
+In the halycon days when there were lots of members there was an intention to run annual exhibitions. Covers from the 1972 and 1973 exhibitions are shown. They were held in the People's Palace. The 1972 cover depicts the Glasgow PS Crest and the 1973 cover shows some of the Society's trophies. It appears that this did not last long, although Glasgow PS did participate in several exhibitions in succeeding years.
+
+## Clyde '76 and Clyde '77
+
+Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1976 it was the Bi-centennial of American Independence and Glasgow Philatelic Society provided an exhibition telling the story of Trans-Atlantic Mail Transport, entitled “ACROSS THE ATLANTIC”, in the Glasgow Museum of Transport from 4th to 30th May 1976.
+A cover “Posted in the Oldest "Pillar Box in Scotland” has a special cachet commemorating the 40th anniversary of the maiden voyage of “RMS Queen Mary” and labels produced for the exhibition.
+As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Queen Elizabeth II and Glasgow Philatelic Society mounted an exhibition in the Palace of Art entitled “The Stamp of Royalty”. A souvenir cover is shown with a cachet for the Royal Visit to Glasgow.
+
