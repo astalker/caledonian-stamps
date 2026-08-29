@@ -38,13 +38,24 @@ In the halycon days when there were lots of members there was an intention to ru
 
 ## Clyde'76 and Clyde'77
 
-Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1976 it was the Bi-centennial of American Independence and Glasgow Philatelic Society provided an exhibition telling the story of Trans-Atlantic Mail Transport, entitled “ACROSS THE ATLANTIC”, in the Glasgow Museum of Transport from 4th to 30th May 1976.
-A cover “Posted in the Oldest "Pillar Box in Scotland” has a special cachet commemorating the 40th anniversary of the maiden voyage of “RMS Queen Mary” and labels produced for the exhibition.
+Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1976 it was the Bi-centennial of American Independence and Glasgow Philatelic Society provided an exhibition telling the story of Trans-Atlantic Mail Transport, entitled “ACROSS THE ATLANTIC”, in the Glasgow Museum of Transport from 4th to 30th May 1976.he exhibition was split into 4 sections:
+
+1. **Historical** - the history of the United States as told by stamps and old letters.The connections between Scotland and the United States were highlighted with special reference to the Tobacco Trade with an exhibit on Tobacco on stamps.
+2. **Sea Mail** - many letters carried on ships were shown including one on the "Sirius", which was the first vessel to cross the Atlantic under her own steam all the way. A cover “Posted in the Oldest "Pillar Box in Scotland” has a special cachet commemorating the 40th anniversary of the maiden voyage of “RMS Queen Mary” and labels produced for the exhibition.
+3. **Air Mail** - in the air mail section there were many items carried in both directions across the Atlantic. Included was an interesting exhibit featuring the development of aviation in Scotland.
+4. **Aspects of US Philately**. - included were some areas of specialisation. An exhibit of independant mail carriers including the famous name Wells Fargo.and studies of individual stamps, postal stationery and modern printing methods.
+
 As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Queen Elizabeth II and Glasgow Philatelic Society mounted an exhibition in the Palace of Art entitled “The Stamp of Royalty”. A souvenir cover is shown with a cachet for the Royal Visit to Glasgow.
+
+The exhibition was well attended and a total of 16,694 people attended over the 16 days.
 
 ## Glasgow 800
 
-1975 was the 800th anniversary of the granting of the Burgh Charter by King William the Lion. To mark this event the Glasgow Philatelic Society presented a **major exhibition** devoted to the Postal History of Glasgow. Special souvenir envelopes and handstamps were produced with a different handstamp each day. In 1844 numerical postmarks were introduced and this cover shows number 159 which was Glasgow’s number. In 1855 a new experimental type was introduced which combined the number and a date stamp – known as a Duplex. A few years later a roller cancellation came into use and it is type that is incorporated in the handstamp.
+1975 was the 800th anniversary of the granting of the Burgh Charter by King William the Lion. To mark this event the Glasgow Philatelic Society presented a **major exhibition** in Kelvingrove Museuem and Art Gallery, devoted to the Postal History of Glasgow. Special souvenir envelopes and handstamps were produced with a different handstamp each day. In 1844 numerical postmarks were introduced and this cover shows number 159 which was Glasgow’s number. In 1855 a new experimental type was introduced which combined the number and a date stamp – known as a Duplex. A few years later a roller cancellation came into use and it is type that is incorporated in the handstamp.
+
+One of the highlights of the exhibition was collection of items from Monaco. Prince Rainier allowed some items from the Monaco Postal Archives to be displayed. Monaco had in the past issued a number of stamps for the Monte Carlo Rally. The 1955 issue for the 25th Rally had Glasgow University in its design, and the stamp for the 26th Rally showed a map of the complete route from Glasgow to Monaco. Prince Rainier had given permission for the loan of original artwork for these stamp designs and sheets of colour trials.
+
+In the 1780s, communications between London and Glasgow was slow and went via Edinburgh. Glasgow Chamber of Commerce approached John Palmer of Bath, the Mail Coach Pioneer and Postal Reformer regarding a direct service about the possibility of commencing a direct service between London and Glasgow. The first Mail Coach arrived in Glasgow on 7th July 1788 to great acclaim. Normally on perment display in the Museum in Bath, tis handsome Mail Coach was  oaned for the exhibition.
 
 There were several cancellations produced including one with a cachet to commemorate the visit of Princess Margaret.
 A jumbo card illustrated the various postmarks used in Glasgow over the years:
@@ -77,7 +88,7 @@ The museum of Transport was always a good place to holsd exhibitions as their is
 
 **Transport, The Philatelic Movement**
 
-On 6th and 7th June 1988 an exhibition was held in the Museum of Transport when it relocated to the Kelvin Hall The cover is signed by Mr A Smith (Keeper of the Museum) and C Clayson (Assistant Keeper). The cover is a Benham Silk with a Silk showing the iconic tramcars in the Glasgow livery.
+On 6th and 7th June 1988 an exhibition was held in the Museum of Transport when it was relocated to the Kelvin Hall The cover is signed by Mr A Smith (Keeper of the Museum) and C Clayson (Assistant Keeper). The cover is a Benham Silk with a Silk showing the iconic tramcars in the Glasgow livery.
 
 **Glasgow Garden Festival 1988**.
 
