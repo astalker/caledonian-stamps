@@ -45,9 +45,9 @@ Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1
 3. **Air Mail** - in the air mail section there were many items carried in both directions across the Atlantic. Included was an interesting exhibit featuring the development of aviation in Scotland.
 4. **Aspects of US Philately**. - included were some areas of specialisation. An exhibit of independant mail carriers including the famous name Wells Fargo.and studies of individual stamps, postal stationery and modern printing methods.
 
-As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Queen Elizabeth II and Glasgow Philatelic Society mounted an exhibition in the Palace of Art entitled “The Stamp of Royalty”. A souvenir cover is shown with a cachet for the Royal Visit to Glasgow.
+As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Queen Elizabeth II and Glasgow Philatelic Society mounted an exhibition in the Palace of Art entitled “The Stamp of Royalty”. A souvenir cover is shown with a cachet for the Royal Visit to Glasgow. Also shown os the inner of a special card with the four G.B. Silver Jubilee stamps with the exhibition postmark.
 
-The exhibition was well attended and a total of 16,694 people attended over the 16 days.
+The exhibition was well attended and it is recorded that a total of 16,694 people attended over the 16 days.
 
 ## Glasgow 800
 
@@ -80,7 +80,13 @@ Additional cachet on 3rd day of exhibition for Scotland v England football match
 
 ## Palace of Art 1974
 
-An exhibition in conjunction with the Glasgow and West of Scotland Horticultural Society was held in the Palace of Art in Bellahouston on September 10th and 11th 1974. The cachet of Robert Brydone commemorates Mrs Robert Brydone after whom a clematis is named.
+An exhibition in conjunction with the Glasgow and West of Scotland Horticultural Society was held in the Palace of Art in Bellahouston on September 10th and 11th 1974. The exhibition took place in the anniversary year of Robert Brydone who operated a "Circular Delivery" Service in Glasgow. An attractive souvenir cover commemorates this event. 
+There were contained  5 separate sections:
+1. G.B. and Commonwealth. 
+2. Foreign
+3. Postal History and Air Mail
+4. Thematic
+5. Court of Honour - displays of the winners of the Scociety's annual trophy's together with the trophies..
 
 ## Museum of Transport
 
