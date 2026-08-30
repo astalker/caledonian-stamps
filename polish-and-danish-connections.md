@@ -22,13 +22,13 @@ The exhibits entered into the Exhibition held in LODZ from 17 - 20 October 1985 
 2.	William Spalding  	Hong Kong
 3.	Douglas Arthur	  	George V and George VI Issues of the Commonwealth
 4.	Ken Adams		        Selection of Indian Native States
-5.	
+	
 **Europe Exhibits**
 1.	W L Morton 	      	Netherlands
 2.	Stuart MacKenzie  	Switzerland and its Postal Stationery
 3.	Fairie Campbell 		A Polish Panorama
 4.	Ken Morrison		    Czechoslovakia1918-1938
-5.	
+
 **Thematic Exhibits**
 1.	Margaret Morris     Astronomy – Man and the Universe
 2.	Leslie MacArthur	  Silver Jubilee of Her Majesty the Queen’s Accession to the Throne
