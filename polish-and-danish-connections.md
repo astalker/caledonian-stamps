@@ -16,13 +16,13 @@ The exhibits entered into the Exhibition held in LODZ from 17 - 20 October 1985 
 1.	Edwin Morris 		    Great Britain – Penny Postage
 2.	George MacKenzie	  Postal History of Glasgow 1840-1935
 3.	Raymond McKinnon	  Special Handstamps/ Errors and Varieties
-   
+ 
 **Commonwealth Exhibits**
 1.	Garry Buchanan	  	Trinidad and the Windward Islands
 2.	William Spalding  	Hong Kong
 3.	Douglas Arthur	  	George V and George VI Issues of the Commonwealth
 4.	Ken Adams		        Selection of Indian Native States
-	
+
 **Europe Exhibits**
 1.	W L Morton 	      	Netherlands
 2.	Stuart MacKenzie  	Switzerland and its Postal Stationery
