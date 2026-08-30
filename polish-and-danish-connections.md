@@ -12,11 +12,10 @@ The major activity undertaken by Glasgow PS in support of these cultural relatio
 
 The exhibits entered into the Exhibition held in LODZ from 17 - 20 October 1985 are given as below.
 
-
 **Great Britain Exhibits**
 Edwin Morris  - Great Britain – Penny Postage
 George MacKenzie	- Postal History of Glasgow 1840-1935
-|	Raymond McKinnon	- Special Handstamps/ Errors and Varieties
+Raymond McKinnon	- Special Handstamps/ Errors and Varieties
  
 **Commonwealth Exhibits**
 1.	Garry Buchanan - Trinidad and the Windward Islands
