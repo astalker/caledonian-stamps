@@ -100,7 +100,7 @@ On 6th and 7th June 1988 an exhibition was held in the Museum of Transport when 
 
 **Glasgow Garden Festival 1988**.
 
-In conjunction with the **Garden Festival** Glasgow Philatelic Society mounted an exhibition in the Museum of Transport as part of the Planet Earth exhibition. The cover is signed by George Chesworth the Director of the Garden Festival. 
+In conjunction with the **Garden Festival** in 1988, Glasgow Philatelic Society mounted an exhibition in the Museum of Transport as part of the Planet Earth exhibition. The cover is signed by George Chesworth the Director of the Garden Festival. 
 
 **Stampway to the World**
 
