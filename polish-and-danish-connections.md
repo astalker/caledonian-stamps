@@ -42,4 +42,4 @@ Two of the trophies competed for annually in the Glaasgow PS were donated to the
 ## Danish connections.
 In conjunction with the Glasgow-Danish Festival from 17 – 29 June 1968, Glasgow PS held an exhibition of Danish stamps, The cover shown has a special postmark commemorating the festival. It is believed the exhibition was held in the McLellan Galleries.
 
-[cover](images/danish-exhibition.jpg)
+[cover](images/danish-exhibition-1968.jpg)
