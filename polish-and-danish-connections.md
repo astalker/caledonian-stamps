@@ -12,29 +12,28 @@ The major activity undertaken by Glasgow PS in support of these cultural relatio
 
 The exhibits entered into the Exhibition held in LODZ from 17 - 20 October 1985 are given as below.
 
----- | ----
 **Great Britain Exhibits**
-|	Edwin Morris |Great Britain – Penny Postage
-| George MacKenzie	|  Postal History of Glasgow 1840-1935
-|	Raymond McKinnon	  Special Handstamps/ Errors and Varieties
+Edwin Morris  - Great Britain – Penny Postage
+George MacKenzie	- Postal History of Glasgow 1840-1935
+|	Raymond McKinnon	- Special Handstamps/ Errors and Varieties
  
 **Commonwealth Exhibits**
-1.	Garry Buchanan	  	   Trinidad and the Windward Islands
-2.	William Spalding   	 Hong Kong
-3.	Douglas Arthur	  	   George V and George VI Issues of the Commonwealth
-4.	Ken Adams		          Selection of Indian Native States
+1.	Garry Buchanan - Trinidad and the Windward Islands
+2.	William Spalding - Hong Kong
+3.	Douglas Arthur - George V and George VI Issues of the Commonwealth
+4.	Ken Adams - Selection of Indian Native States
 
 **Europe Exhibits**
-1.	W L Morton 	      	Netherlands
-2.	Stuart MacKenzie  	Switzerland and its Postal Stationery
-3.	Fairie Campbell 		A Polish Panorama
-4.	Ken Morrison		    Czechoslovakia1918-1938
+1.	W L Morton - Netherlands
+2.	Stuart MacKenzie - Switzerland and its Postal Stationery
+3.	Fairlie Campbell - A Polish Panorama
+4.	Ken Morrison - Czechoslovakia1918-1938
 
 **Thematic Exhibits**
-1.	Margaret Morris     Astronomy – Man and the Universe
-2.	Leslie MacArthur	  Silver Jubilee of Her Majesty the Queen’s Accession to the Throne
-3.	Eugene Wood		      Extract from a collection of Birds on Postage Stamps
-4.	Alan Lacey		      Railways over the Years
+1.	Margaret Morris - Astronomy – Man and the Universe
+2.	Leslie MacArthur - Silver Jubilee of Her Majesty the Queen’s Accession to the Throne
+3.	Eugene Wood - Extract from a collection of Birds on Postage Stamps
+4.	Alan Lacey - Railways over the Years
    
 Two of the trophies competed for annually in the Glaasgow PS were donated to the Society by PZF. The Polish Thematic trophy was presented to Glasgow PS by Margaret Morris in 1998. The LODZ Plate is a wooden plate with the Coat of Arms of Warsaw in the centre and was presented to the Society in 1970. For the winners of these trophies see the Competitions page in the Glasgow pS History section. Regrettably, at some stage, the LODZ Plate went missing.
 
