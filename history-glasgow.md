@@ -112,7 +112,7 @@ As part of the year long celebrations under the general title of **“THE PRIDE 
 
 ## Hosting of ASPS Congress
 
-On several occasions the Glasgow Philatelic Society hosted the annual congress of the Association. The Society was hosts in 1933, 1939, 1952, 1966, 1970 in association with Scophilex, 1980, 1990 and in 1995. Souvenir covers were produced from 1966 Congress onwards.  
+On several occasions the Glasgow Philatelic Society hosted the annual congress of the Association. The Society was hosts in 1933, 1939, 1952, 1966, 1970 in association with Scophilex, 1980, and in 1995. Souvenir covers were produced from 1966 Congress onwards.  
 
 The 1980 Cover showed two Veteran Morris cars that took part in the Veteran Car run from Glasgow to Stirling.
 
