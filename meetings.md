@@ -10,7 +10,7 @@ Summer meetings will be in the new venue alongside the Glasgow Stamp Shop on the
 
 **23rd July 2026** - **Tristan da Cunha Potato Stamps** by Martin and Marilyn Crawford and Alistair Burrows- **A Gold Winning** Exhibit. Martin and Marilyn are special geusts from South Africa.
 
-**13th August 2026** - Don't be Feart of Forgeries, they're fun - powerpoint display 
+**13th August 2026** - Don't be afeart of Forgeries, they're fun - powerpoint display 
 
 **10th September 2026** - John Gallacher with a Philatelic Website Talk - powerpoint display
 
@@ -20,13 +20,13 @@ Location of both afternoon and evening meetings will in the room as part of the 
 
 Date  | Subject | Displayer | Timing of meetings |
 ---- | ------- | --------- | --------------  |
-8 October | Antiquoia | President's Display | Afternoon
+8 October | Antiquoia and Colombian Classics| President's Display | Afternoon
 15 October | TBA | Ian Mason | Evening
 22 October | Dundee Postal History | David Miller |Afternoon
 5 November | Spanish Civil War/Cinderellas | Bob Adams | Afternoon
 12 November | GB Line Engraved and Postal History | Robert Watt | Evening
 26 November | Hungary | Sandy Kerr | Afternoon
-3 December |TBA | TBA | Afternoon
+3 December | Glasgow to Inverness by Steamer | Alan Rushforth | Afternoon
 10 December | Bourse | | Evening
 17 December | Christmas Meeting (Alphabet Lottery) ||Afternoon
 7 January | Trinidad | Susan Taylor | Afternoon
@@ -34,10 +34,10 @@ Date  | Subject | Displayer | Timing of meetings |
 21 January | New Zealand and Samoa | Paul Woods | Afternoon
 4 February | Stamps of South Georgia/FID and Britiash Antartic Territory. Usage of GB 2d Blue | Norman Kelso | Afternoon
 11 February | Competition Night | |Evening
-25 February | TBA | TBA | Afternoon
+25 February | TBA | Bob Adams | Afternoon
 4 March | Stamps for Scotland | Robert Murray | Afternoon
 11 March | Auction  || Evening
- 18 March | Explorers | Maureen Matheson | Afternoon
+18 March | Explorers | Maureen Matheson | Afternoon
 1 April | AGM || 
 
 
