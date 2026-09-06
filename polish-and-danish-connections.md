@@ -15,7 +15,9 @@ An exhibition of “Polish stamps and Philatelic Material 1960 – 1984”, “P
 The major activity undertaken by Glasgow PS in support of these cultural relations was the visit to Lodz in 1985 coinciding with the celebrations for the 40th anniversary of the ending of the Second World War. Margaret Morris was a member of the jury accompanied by Fairlie Campbell as National Commissioner of the Exhibition and Leslie McArthur of the Scottish – Polish Cultural Association. Displays from 15 members of Glasgow PS were taken over. 3 special commemorative covers were issued.
 
 TBD Image:LODZ-Cover-1
+
 TBD Image:Lodz-Cover-2
+
 TBD Image:Lodz-Cover-3
 
 The exhibits entered into the Exhibition held in LODZ from 17 - 20 October 1985 are given as below.
