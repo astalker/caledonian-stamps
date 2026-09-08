@@ -159,13 +159,18 @@ The museum of Transport was always a good place to hold exhibitions as their is 
 
 On 6th and 7th June 1988 an exhibition was held in the Museum of Transport when it was relocated to the Kelvin Hall The cover is signed by Mr A Smith (Keeper of the Museum) and C Clayson (Assistant Keeper). The cover is a Benham Silk with a Silk showing the iconic tramcars in the Glasgow livery.
 
+TBD image:Museum-of-Transport,jpg
+
 **Glasgow Garden Festival 1988**.
 
 In conjunction with the **Garden Festival** in 1988, Glasgow Philatelic Society mounted an exhibition in the Museum of Transport as part of the Planet Earth exhibition. The cover is signed by George Chesworth the Director of the Garden Festival. 
 
+TBD image:Garden-Festival-Cover.jpg
 **Stampway to the World**
 
 Another exhibition relating to transport and the postal systems, entitled “The Post in Scotland”, was held at the Museum of Transport in October 1990.
+
+TBD image:Stampway-to-the-World.jpg
 
 ## Pride of the Clyde
 
