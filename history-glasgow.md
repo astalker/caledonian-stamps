@@ -123,13 +123,21 @@ Volume 124 no. 9 of Stamp Collecting Weekly on April 24th 1975 was devoted to Gl
 
 ## SCOPHILEX 1970
 
-1. Glasgow Philatelic Society participated in two of the great Scottish Exhibitions, SCOTEX 1962 and Scophilex 1970. There are always opportunities to have special commemorations as these two covers illustrate:
+Glasgow Philatelic Society participated in two of the great Scottish Exhibitions, SCOTEX 1962 and Scophilex 1970. 
 
-2. Additional cachet for Bicentenary of Captain Cook’s discovery of the east coast of Australia on 2nd day of exhibition.
+TBD image:Scotex-1962.jpg
+
+TBD image:Scophilex-1970.jpg
+
+There are always opportunities to have special commemorations as the cover celebrating the Bicentenary of Captain Cook’s discovery of the east coast of Australia on 2nd day of exhibition illustrates.
+
+TBD image:Scophilex-1970-Austraia-Cachet.jpg
 
 On view also were letters between Madeleine Smith and Pierre L'Angellier from the collection of Lord Clyde, the Lord Justice of Scotland. Of significance were the "Experimental Duplex" cancellations which have become known as the "Madeleine Smith's". The  
   
 Additional cachet on 3rd day of exhibition for Scotland v England football match at Hampden Park – the match ended in a 0-0 draw.
+
+TBD image:Scophilex-1970-Scotland-v-England.jpg
 
 ## Palace of Art 1974
 
