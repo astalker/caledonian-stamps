@@ -17,6 +17,9 @@
 
 In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W. Walker, produced a design that remained in use until 2025. It has been largely adopted, with some minor modifications by Glasgow Caledonian Philatelic Society. It is heavily based on the Crest for the City of Glasgow. The two scans show the Glasgow City crest as used to promote the 11th Philatelic Congress in 1924 and a coloured in depiction of the Crest as used by Glasgow Philatelic Society. The similarity is obvious. 
 
+TBD Image:Crest-of-Glasgow-PS.jpg
+
+TBD Image:Glasgow-City-Crest.jpg
 ## Anniversary Meetings
 
 The **Golden Jubilee** was celebrated in 1970. A special postmark was produced and used on a commemorative cover celebrating the occasion and on a SCOPHILEX Exhibition Cover. Both covers shown also have a cachet commemorating the bicentennial of the "discovery" of Australia by Captain Cook.
