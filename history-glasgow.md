@@ -183,7 +183,11 @@ TBD image:Cover.jpg
 
 ## Hosting of ASPS Congress
 
-On several occasions the Glasgow Philatelic Society hosted the annual congress of the Association. The Society was hosts in 1933, 1939, 1952, 1966, 1970 in association with Scophilex, 1980, and in 1995. Souvenir covers were produced from 1966 Congress onwards.  
+On several occasions the Glasgow Philatelic Society hosted the annual congress of the Association. The Society was hosts in 1933, 1939, 1952, 1966, 1970 in association with Scophilex, 1980, and in 1995. Souvenir covers were produced from 1966 Congress onwards.  .
+
+The first Congress cover produced by Glasgow philatelic Society was in 1966. This showed Glasgow Cathedral
+
+TBD image:Congress-1966.jpg
 
 The 1980 Cover showed two Veteran Morris cars that took part in the Veteran Car run from Glasgow to Stirling. The cover highlights the Diamond Jubilee of Glasgow Philatelic Society.
 
