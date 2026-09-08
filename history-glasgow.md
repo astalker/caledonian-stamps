@@ -166,6 +166,7 @@ TBD image:Museum-of-Transport,jpg
 In conjunction with the **Garden Festival** in 1988, Glasgow Philatelic Society mounted an exhibition in the Museum of Transport as part of the Planet Earth exhibition. The cover is signed by George Chesworth the Director of the Garden Festival. 
 
 TBD image:Garden-Festival-Cover.jpg
+
 **Stampway to the World**
 
 Another exhibition relating to transport and the postal systems, entitled “The Post in Scotland”, was held at the Museum of Transport in October 1990.
@@ -175,6 +176,10 @@ TBD image:Stampway-to-the-World.jpg
 ## Pride of the Clyde
 
 As part of the year long celebrations under the general title of **“THE PRIDE OF THE CLYDE CELEBRATIONS”**. Glasgow and surrounding area Philatelic Associations mounted an exhibition in the SECC form 12 – 24 September 1983. Focus was on telling the story of the river in all its aspects including people, wildlife, work and play, sport, arts, industry and transport. There were associated philatelic exhibits on the famous Madeleine Smith trial, Coats and Clydebank and its association with shipbuilding. 
+
+TBD image:Card.jpg
+
+TBD image:Cover.jpg
 
 ## Hosting of ASPS Congress
 
