@@ -37,6 +37,10 @@ TBD Image:1000th-Meeting-Card.jpg
 
 For the **75th anniversary** in 1995, the Society hosted the annual Congress of ASPS. As this coincided with the 125th anniversary of the introduction of the Post Card a special card, based on the original card from 1870, was used to invite attendees to the opening ceremony on 18th March. 
 
+TBD Image:75th-Anniversary-Card-1.jpg
+
+TBD Image:75th-Anniversary-Card-2.jpg
+
 The **1500th meeting** took place on 14th March 1995. A second card with a replica of the Post Office Notice introducing Post Cards was produced to be used at the ASPS Congress in 1995.
 
 TBD Image:1500th-Meeting-Signed Cover.jpg
