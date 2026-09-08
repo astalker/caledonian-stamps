@@ -62,6 +62,10 @@ Glasgow PS were quite active in exhibitions either on their own or as invited ex
 
 In the halycon days when there were lots of members there was an intention to run annual exhibitions. Covers from the 1972 and 1973 exhibitions are shown. They were held in the People's Palace. The 1972 cover depicts the Glasgow PS Crest and the 1973 cover shows some of the Society's trophies. It appears that this did not last long, although Glasgow PS did participate in several exhibitions in succeeding years.
 
+TBD image:2nd-Annual-Exhibition.jpg
+
+TBD image:3rd-Annual-Exhibition.jpg
+
 ## Clyde'76 and Clyde'77
 
 Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1976 it was the Bi-centennial of American Independence and Glasgow Philatelic Society provided an exhibition telling the story of Trans-Atlantic Mail Transport, entitled “ACROSS THE ATLANTIC”, in the Glasgow Museum of Transport from 4th to 30th May 1976.he exhibition was split into 4 sections:
@@ -71,7 +75,15 @@ Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1
 3. **Air Mail** - in the air mail section there were many items carried in both directions across the Atlantic. Included was an interesting exhibit featuring the development of aviation in Scotland.
 4. **Aspects of US Philately**. - included were some areas of specialisation. An exhibit of independant mail carriers including the famous name Wells Fargo.and studies of individual stamps, postal stationery and modern printing methods.
 
+TBD image:Clyde-'77-Cover.jpg
+
+TBD image:Clyde-'77.jpg
+
 As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Queen Elizabeth II and Glasgow Philatelic Society mounted an exhibition in the Palace of Art entitled “The Stamp of Royalty”. A souvenir cover is shown with a cachet for the Royal Visit to Glasgow. Also shown os the inner of a special card with the four G.B. Silver Jubilee stamps with the exhibition postmark.
+
+TBD image:Clyde-'77-cover-with-Royal-Visit-cachet.jpg
+
+TBD image:Silver-Jubilee-card.jpg
 
 The exhibition was well attended and it is recorded that a total of 16,694 people attended over the 16 days.
 
