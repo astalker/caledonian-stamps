@@ -147,11 +147,13 @@ There were contained  5 separate sections:
 2. Foreign
 3. Postal History and Air Mail
 4. Thematic
-5. Court of Honour - displays of the winners of the Scociety's annual trophy's together with the trophies..
+5. Court of Honour - displays of the winners of the Scociety's annual trophy's together with the trophies.
+
+TBD image:Palace-of-Art-1974.jpg
 
 ## Museum of Transport
 
-The museum of Transport was always a good place to holsd exhibitions as their is a common link between transport and the mail.
+The museum of Transport was always a good place to hold exhibitions as their is a common link between transport and the mail.
 
 **Transport, The Philatelic Movement**
 
