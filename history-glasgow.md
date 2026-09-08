@@ -91,12 +91,21 @@ The exhibition was well attended and it is recorded that a total of 16,694 peopl
 
 1975 was the 800th anniversary of the granting of the Burgh Charter by King William the Lion. To mark this event the Glasgow Philatelic Society presented a **major exhibition** in Kelvingrove Museuem and Art Gallery, devoted to the Postal History of Glasgow. Special souvenir envelopes and handstamps were produced with a different handstamp each day. In 1844 numerical postmarks were introduced and this cover shows number 159 which was Glasgow’s number. In 1855 a new experimental type was introduced which combined the number and a date stamp – known as a Duplex. A few years later a roller cancellation came into use and it is type that is incorporated in the handstamp.
 
+TBD image:Glasgow-800-Opening-Day.jpg
+
+TBD image:Glasgow-800-Closing-Day.jpg
+
+TBD image:Glasgow-800-Cover-1.jpg
+
 One of the highlights of the exhibition was collection of items from Monaco. Prince Rainier allowed some items from the Monaco Postal Archives to be displayed. Monaco had in the past issued a number of stamps for the Monte Carlo Rally. The 1955 issue for the 25th Rally had Glasgow University in its design, and the stamp for the 26th Rally showed a map of the complete route from Glasgow to Monaco. Prince Rainier had given permission for the loan of original artwork for these stamp designs and sheets of colour trials.
 
-In the 1780s, communications between London and Glasgow was slow and went via Edinburgh. Glasgow Chamber of Commerce approached John Palmer of Bath, the Mail Coach Pioneer and Postal Reformer regarding a direct service about the possibility of commencing a direct service between London and Glasgow. The first Mail Coach arrived in Glasgow on 7th July 1788 to great acclaim. Normally on perment display in the Museum in Bath, tis handsome Mail Coach was  oaned for the exhibition.
+In the 1780s, communications between London and Glasgow was slow and went via Edinburgh. Glasgow Chamber of Commerce approached John Palmer of Bath, the Mail Coach Pioneer and Postal Reformer regarding a direct service about the possibility of commencing a direct service between London and Glasgow. The first Mail Coach arrived in Glasgow on 7th July 1788 to great acclaim. Normally on permenent display in the Museum in Bath, this handsome Mail Coach was loaned for the exhibition.
 
-There were several cancellations produced including one with a cachet to commemorate the visit of Princess Margaret.
-A jumbo card illustrated the various postmarks used in Glasgow over the years:
+TBD image:Glasgow-800-Cover-Mail-Coach-Signed-by-LP.jpg
+
+There were several cancellations produced including one with a cachet to commemorate the visit of Princess Margaret. A jumbo card illustrated the various postmarks used in Glasgow over the years:
+
+TBD image:Postmarks-of-Glasgow.jpg
 
 1  First Glasgow Woodcut,   2 Glasgow Crown Ship Letter, 
 3  Receiving house – Glasgow Exchange   4. Glasgow “Roller”
@@ -105,8 +114,12 @@ A jumbo card illustrated the various postmarks used in Glasgow over the years:
 9. Double Ring Numbered Cancellation with Solid Arcs
 
 Two sheets of Commemorative labels were on sale at the exhibition. One showing significant aspects of each century from the 12th century to the 29th century and the second sheet showing the Royal Mail Coach from 1940. The Mail Coach led the Lord Provost’s procession from Kelvin Way to Glasgow Green via George Square. The design of the cover is based on the 1890 Jubilee of Penny Postage Envelope. 
-Volume 124 no. 9 of Stamp Collecting Weekly on April 24th 1975 was devoted to Glasgow 800 with several articles on postal history of Glasgow and the 1000th meeting of the Society.
 
+TBD image:Labels-1.jpg
+
+TBD image:Labels-1.jpg
+
+Volume 124 no. 9 of Stamp Collecting Weekly on April 24th 1975 was devoted to Glasgow 800 with several articles on postal history of Glasgow and the 1000th meeting of the Society.
 
 ## SCOPHILEX 1970
 
