@@ -185,6 +185,12 @@ TBD image:Cover.jpg
 
 On several occasions the Glasgow Philatelic Society hosted the annual congress of the Association. The Society was hosts in 1933, 1939, 1952, 1966, 1970 in association with Scophilex, 1980, and in 1995. Souvenir covers were produced from 1966 Congress onwards.  
 
-The 1980 Cover showed two Veteran Morris cars that took part in the Veteran Car run from Glasgow to Stirling.
+The 1980 Cover showed two Veteran Morris cars that took part in the Veteran Car run from Glasgow to Stirling. The cover highlights the Diamond Jubilee of Glasgow Philatelic Society.
 
-in 1995 Two Postmarks were used. One was based on the Coat of Arms Old Gas Lamp in Cathedral Square in Glasgow to celebrate the 75th anniversary of Glasgow Philatelic Society. The second one depicted the Wallace Monument with an insert in the ASPS Congress Cover giving historical details of William Wallace and the Monument.
+TBD image:Congress-1980.jpg
+
+in 1995 the postmark was based on the Coat of Arms Old Gas Lamp in Cathedral Square in Glasgow to celebrate the 75th anniversary of Glasgow Philatelic Society. 
+
+TBD image:ASPS-1995-Postmark.jpg
+
+TBD image:Glasgow-Crest.jpg
