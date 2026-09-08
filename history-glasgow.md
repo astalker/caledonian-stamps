@@ -47,7 +47,7 @@ TBD Image:1500th-Meeting-Signed Cover.jpg
 
 TBD Image:1500th-Meeting-Card.jpg
 
-A dinner to celebrate the Centennial of Glasgow Philatelic Society was held in June 2022 in the Grosvenor Hilton with a card produced.
+A dinner to celebrate the **Centennial** of Glasgow Philatelic Society was held in June 2022 in the Grosvenor Hilton with a card produced.
 
 TBD Image:Centenary-Dinner.jpg
 
