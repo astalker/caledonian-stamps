@@ -47,6 +47,12 @@ TBD Image:1500th-Meeting-Signed Cover.jpg
 
 TBD Image:1500th-Meeting-Card.jpg
 
+A dinner to celebrate the Centennial of Glasgow Philatelic Society was held in June 2022 in the Grosvenor Hilton with a card produced.
+
+TBD Image:Centenary-Dinner.jpg
+
+To further celebrate the centennial a lunch with invited displays from many of the Philatelic Societies in Scotland was held on 16th April 2024 in the Glasgow Grosvenor Hotel.
+
 Glasgow PS were quite active in exhibitions either on their own or as invited exhibitions for larger celebrations. It is worth recording these and many of the covers produced are shown below.
 
 ## Annual Exhibitions
