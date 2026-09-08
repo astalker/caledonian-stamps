@@ -12,7 +12,9 @@ A typical Society meeting would involve a display and talk from one or more memb
 
 Displays can either be a collection of stamps, postal history, covers or on a theme illustrated and developed using what is printed on the stamps with other associated ephemera. Displays may also include other material related to stamps and their uses – such as revenue and tax stamps - or other similar items such as Cinderella stamps – for instance Christmas Tb Seals. Postcard collecting is now very popular and there are often displays based on postcards. Displays do not need to be of a high standard and displays from members who have not displayed before are encouraged.
 
-The 2500th meeting of the Caledonian Philatelic Society was held on 13 October 2016. The 1500th meeting of the Glasgow Philatelic Society was held on 14th March 1995 and the Centenary on 10h April 2024 (delayed by the COVID19 Pandemic restrictions). Both Societies having had a long and illustrious history.
+The 2500th meeting of the Caledonian Philatelic Society was held on 13 October 2016. The 1500th meeting of the Glasgow Philatelic Society was held on 14th March 1995. The centenary of Glasgow Philatelic Society was was celebrated with a lunch in the Glasgow Grosvenor in June 2022 - delayed by the restrictions imposed by the COVID19 pandemic.
+
+Both Societies having had a long and illustrious history.
 
 There is also an Advisory Committee to give advice to the relatives of deceased members or members in failing health about selling their philatelic properties.
 
