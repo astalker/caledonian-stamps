@@ -22,7 +22,7 @@ Date  | Subject | Displayer | Timing of meetings |
 ---- | ------- | --------- | --------------  |
 8 October | Antiquoia and Colombian Classics| President's Display | Afternoon
 15 October | TBA | Ian Mason | Evening
-17 October | SCOTEX |
+17 October | SCOTEX | The Carnegie Conference Centre City Campus, Dunfermline  KY11 8WH
 22 October | Dundee Postal History | David Miller |Afternoon
 5 November | Spanish Civil War/Cinderellas | Bob Adams | Afternoon
 7 November | Family Day at Kelvin Hall
