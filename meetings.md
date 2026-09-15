@@ -24,6 +24,7 @@ Date  | Subject | Displayer | Timing of meetings |
 15 October | TBA | Ian Mason | Evening
 22 October | Dundee Postal History | David Miller |Afternoon
 5 November | Spanish Civil War/Cinderellas | Bob Adams | Afternoon
+7 November | Family Day at Kelvin Hall
 12 November | GB Line Engraved and Postal History | Robert Watt | Evening
 26 November | Hungary | Sandy Kerr | Afternoon
 3 December | Glasgow to Inverness by Steamer | Alan Rushforth | Afternoon
