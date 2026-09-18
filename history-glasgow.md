@@ -36,8 +36,6 @@ The **1000th meeting** of the Society was held on 25th March 1975 and 16 past pr
 
 ![1000th Meeting](images/scans/1000th-meeting.jpg)
 
-![1000th Meeting Card](images/scans/1000th meeting.jpg)
-
 For the **75th anniversary** in 1995, the Society hosted the annual Congress of ASPS. As this coincided with the 125th anniversary of the introduction of the Post Card a special card, based on the original card from 1870, was used to invite attendees to the opening ceremony on 18th March. 
 
 ![75th Anniversary Card 1](images/scans/75th-Anniversary-Card-1.jpg)
