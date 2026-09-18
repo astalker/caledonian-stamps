@@ -17,42 +17,42 @@
 
 In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W. Walker, produced a design that remained in use until 2025. It has been largely adopted, with some minor modifications by Glasgow Caledonian Philatelic Society. It is heavily based on the Crest for the City of Glasgow. The two scans show the Glasgow City crest as used to promote the 11th Philatelic Congress in 1924 and a coloured in depiction of the Crest as used by Glasgow Philatelic Society. The similarity is obvious. 
 
-TBD Image:Crest-of-Glasgow-PS.jpg
+![Crest of Glasgow PS](images/scans/Crest-of-Glasgow-PS.jpg)
 
-TBD Image:Glasgow-City-Crest.jpg
+![Glasgow City Crest](images/scans/Glasgow-City-Crest.jpg)
 ## Anniversary Meetings
 
 The **Golden Jubilee** was celebrated in 1970. A special postmark was produced and used on a commemorative cover celebrating the occasion and on a SCOPHILEX Exhibition Cover. Both covers shown also have a cachet commemorating the bicentennial of the "discovery" of Australia by Captain Cook.
 
-TBD Image:Golden-Jubilee.jpg
+![Golden Jubilee](images/scans/Gloden-Jubilee.jpg)
 
-TBD Image:Golden-Jubilee-1.jpg
+![Golden Jubilee 1](images/scans/Gloden-Jubilee-1.jpg)
 
 The **55th Anniversary** was celebrated on 15th March 1975 and a commemorative cover was produced.
 
-TBD Image:55th-Anniversary-Cover.jpg
+![55th Anniversary Cover](images/scans/55th-Anniversary-Cover.jpg)
 
 The **1000th meeting** of the Society was held on 25th March 1975 and 16 past presidents gave displays. The cover is signed by all of the past presidents as well as the principal office bearers of the society in 1975.
 
-TBD Image:1000th-Meeting.jpg
+![1000th Meeting](images/scans/1000th-meeting.jpg)
 
-TBD Image:1000th-Meeting-Card.jpg
+![1000th Meeting Card](images/scans/1000th meeting.jpg)
 
 For the **75th anniversary** in 1995, the Society hosted the annual Congress of ASPS. As this coincided with the 125th anniversary of the introduction of the Post Card a special card, based on the original card from 1870, was used to invite attendees to the opening ceremony on 18th March. 
 
-TBD Image:75th-Anniversary-Card-1.jpg
+![75th Anniversary Card 1](images/scans/75th-Anniversary-Card-1.jpg)
 
-TBD Image:75th-Anniversary-Card-2.jpg
+![75th Anniversary Card 2](images/scans/75th-Anniversary-Card-2.jpg)
 
 The **1500th meeting** took place on 14th March 1995. A second card with a replica of the Post Office Notice introducing Post Cards was produced to be used at the ASPS Congress in 1995.
 
-TBD Image:1500th-Meeting-Signed Cover.jpg
+![1500th Meeting Signed Cover](images/scans/1500th-Meeting-signed-cover.jpg)
 
-TBD Image:1500th-Meeting-Card.jpg
+![1500th Meeting Card](images/scans/1500th-Meeting-Card.jpg)
 
 A dinner to celebrate the **Centennial** of Glasgow Philatelic Society was held in June 2022 in the Grosvenor Hilton with a card produced.
 
-TBD Image:Centenary-Dinner.jpg
+![Centenary Dinner](images/scans/Centenary-Dinner.jpg)
 
 To further celebrate the centennial a lunch with invited displays from many of the Philatelic Societies in Scotland was held on 16th April 2024 in the Glasgow Grosvenor Hotel.
 
@@ -62,9 +62,9 @@ Glasgow PS were quite active in exhibitions either on their own or as invited ex
 
 In the halycon days when there were lots of members there was an intention to run annual exhibitions. Covers from the 1972 and 1973 exhibitions are shown. They were held in the People's Palace. The 1972 cover depicts the Glasgow PS Crest and the 1973 cover shows some of the Society's trophies. It appears that this did not last long, although Glasgow PS did participate in several exhibitions in succeeding years.
 
-TBD image:2nd-Annual-Exhibition.jpg
+![2nd Annual Exhibition](images/scans/2nd-Annual-Exhibition.jpg)
 
-TBD image:3rd-Annual-Exhibition.jpg
+![3rd Annual Exhibition](images/scans/3rd-Annual-Exhibition.jpg)
 
 ## Clyde'76 and Clyde'77
 
@@ -75,15 +75,15 @@ Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1
 3. **Air Mail** - in the air mail section there were many items carried in both directions across the Atlantic. Included was an interesting exhibit featuring the development of aviation in Scotland.
 4. **Aspects of US Philately**. - included were some areas of specialisation. An exhibit of independant mail carriers including the famous name Wells Fargo.and studies of individual stamps, postal stationery and modern printing methods.
 
-TBD image:Clyde-'77-Cover.jpg
+![Clyde 77 Cover](images/scans/Clyde-76-Cover.jpg)
 
-TBD image:Clyde-'77.jpg
+![Clyde 77](images/scans/CLYDE-77.jpg)
 
 As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Queen Elizabeth II and Glasgow Philatelic Society mounted an exhibition in the Palace of Art entitled “The Stamp of Royalty”. A souvenir cover is shown with a cachet for the Royal Visit to Glasgow. Also shown os the inner of a special card with the four G.B. Silver Jubilee stamps with the exhibition postmark.
 
-TBD image:Clyde-'77-cover-with-Royal-Visit-cachet.jpg
+![Clyde 77 Cover with Royal Visit Cachet](images/scans/CLYDE-77-cover-with-Royal-V.jpg)
 
-TBD image:Silver-Jubilee-card.jpg
+![Silver Jubilee Card](images/scans/Silver-Jubilee-card.jpg)
 
 The exhibition was well attended and it is recorded that a total of 16,694 people attended over the 16 days.
 
@@ -91,21 +91,21 @@ The exhibition was well attended and it is recorded that a total of 16,694 peopl
 
 1975 was the 800th anniversary of the granting of the Burgh Charter by King William the Lion. To mark this event the Glasgow Philatelic Society presented a **major exhibition** in Kelvingrove Museuem and Art Gallery, devoted to the Postal History of Glasgow. Special souvenir envelopes and handstamps were produced with a different handstamp each day. In 1844 numerical postmarks were introduced and this cover shows number 159 which was Glasgow’s number. In 1855 a new experimental type was introduced which combined the number and a date stamp – known as a Duplex. A few years later a roller cancellation came into use and it is type that is incorporated in the handstamp.
 
-TBD image:Glasgow-800-Opening-Day.jpg
+![Glasgow 800 Opening Day](images/scans/Glasgow-800-Opening-Day.jpg)
 
-TBD image:Glasgow-800-Closing-Day.jpg
+![Glasgow 800 Closing Day](images/scans/Glasgow-800-Closing--Day.jpg)
 
-TBD image:Glasgow-800-Cover-1.jpg
+![Glasgow 800 Cover 1](images/scans/Glasgow-800-Cover-1.jpg)
 
 One of the highlights of the exhibition was collection of items from Monaco. Prince Rainier allowed some items from the Monaco Postal Archives to be displayed. Monaco had in the past issued a number of stamps for the Monte Carlo Rally. The 1955 issue for the 25th Rally had Glasgow University in its design, and the stamp for the 26th Rally showed a map of the complete route from Glasgow to Monaco. Prince Rainier had given permission for the loan of original artwork for these stamp designs and sheets of colour trials.
 
 In the 1780s, communications between London and Glasgow was slow and went via Edinburgh. Glasgow Chamber of Commerce approached John Palmer of Bath, the Mail Coach Pioneer and Postal Reformer regarding a direct service about the possibility of commencing a direct service between London and Glasgow. The first Mail Coach arrived in Glasgow on 7th July 1788 to great acclaim. Normally on permenent display in the Museum in Bath, this handsome Mail Coach was loaned for the exhibition.
 
-TBD image:Glasgow-800-Cover-Mail-Coach-Signed-by-LP.jpg
+![Glasgow 800 Cover Mail Coach Signed by LP](images/scans/Glasgow-800-Cover-Mail-Coac.jpg)
 
 There were several cancellations produced including one with a cachet to commemorate the visit of Princess Margaret. A jumbo card illustrated the various postmarks used in Glasgow over the years:
 
-TBD image:Postmarks-of-Glasgow.jpg
+![Postmarks of Glasgow](images/scans/Postmarks-of-Glasgow.jpg)
 
 1  First Glasgow Woodcut,   2 Glasgow Crown Ship Letter, 
 3  Receiving house – Glasgow Exchange   4. Glasgow “Roller”
@@ -115,9 +115,9 @@ TBD image:Postmarks-of-Glasgow.jpg
 
 Two sheets of Commemorative labels were on sale at the exhibition. One showing significant aspects of each century from the 12th century to the 29th century and the second sheet showing the Royal Mail Coach from 1940. The Mail Coach led the Lord Provost’s procession from Kelvin Way to Glasgow Green via George Square. The design of the cover is based on the 1890 Jubilee of Penny Postage Envelope. 
 
-TBD image:Labels-1.jpg
+![Labels 1](images/scans/Labels-1.jpg)
 
-TBD image:Labels-1.jpg
+![Labels](images/scans/Labels.jpg)
 
 Volume 124 no. 9 of Stamp Collecting Weekly on April 24th 1975 was devoted to Glasgow 800 with several articles on postal history of Glasgow and the 1000th meeting of the Society.
 
@@ -125,19 +125,19 @@ Volume 124 no. 9 of Stamp Collecting Weekly on April 24th 1975 was devoted to Gl
 
 Glasgow Philatelic Society participated in two of the great Scottish Exhibitions, SCOTEX 1962 and Scophilex 1970. 
 
-TBD image:Scotex-1962.jpg
+![Scotex 1962](images/scans/Scotex-1962.jpg)
 
-TBD image:Scophilex-1970.jpg
+![Scophilex 1970](images/scans/SCOPHILEX-1970.jpg)
 
 There are always opportunities to have special commemorations as the cover celebrating the Bicentenary of Captain Cook’s discovery of the east coast of Australia on 2nd day of exhibition illustrates.
 
-TBD image:Scophilex-1970-Austraia-Cachet.jpg
+![Scophilex 1970 Australia Cachet](images/scans/Scophilex-1970-Australia-ca.jpg)
 
 On view also were letters between Madeleine Smith and Pierre L'Angellier from the collection of Lord Clyde, the Lord Justice of Scotland. Of significance were the "Experimental Duplex" cancellations which have become known as the "Madeleine Smith's". The  
   
 Additional cachet on 3rd day of exhibition for Scotland v England football match at Hampden Park – the match ended in a 0-0 draw.
 
-TBD image:Scophilex-1970-Scotland-v-England.jpg
+![Scophilex 1970 Scotland v England](images/scans/Scophilex-1970-Scotland-v-E.jpg)
 
 ## Palace of Art 1974
 
@@ -149,7 +149,7 @@ There were contained  5 separate sections:
 4. Thematic
 5. Court of Honour - displays of the winners of the Scociety's annual trophy's together with the trophies.
 
-TBD image:Palace-of-Art-1974.jpg
+![Palace of Art 1974](images/scans/Palace-of-Art-1974.jpg)
 
 ## Museum of Transport
 
@@ -159,27 +159,27 @@ The museum of Transport was always a good place to hold exhibitions as their is 
 
 On 6th and 7th June 1988 an exhibition was held in the Museum of Transport when it was relocated to the Kelvin Hall The cover is signed by Mr A Smith (Keeper of the Museum) and C Clayson (Assistant Keeper). The cover is a Benham Silk with a Silk showing the iconic tramcars in the Glasgow livery.
 
-TBD image:Museum-of-Transport,jpg
+![Museum of Transport](images/scans/Museum-of-Transport.jpg)
 
 **Glasgow Garden Festival 1988**.
 
 In conjunction with the **Garden Festival** in 1988, Glasgow Philatelic Society mounted an exhibition in the Museum of Transport as part of the Planet Earth exhibition. The cover is signed by George Chesworth the Director of the Garden Festival. 
 
-TBD image:Garden-Festival-Cover.jpg
+![Garden Festival Cover](images/scans/Garden-Festival-Cover.jpg)
 
 **Stampway to the World**
 
 Another exhibition relating to transport and the postal systems, entitled “The Post in Scotland”, was held at the Museum of Transport in October 1990.
 
-TBD image:Stampway-to-the-World.jpg
+![Stampway to the World](images/scans/Stampway-to-the-World-1990.jpg)
 
 ## Pride of the Clyde
 
 As part of the year long celebrations under the general title of **“THE PRIDE OF THE CLYDE CELEBRATIONS”**. Glasgow and surrounding area Philatelic Associations mounted an exhibition in the SECC form 12 – 24 September 1983. Focus was on telling the story of the river in all its aspects including people, wildlife, work and play, sport, arts, industry and transport. There were associated philatelic exhibits on the famous Madeleine Smith trial, Coats and Clydebank and its association with shipbuilding. 
 
-TBD image:Card.jpg
+![Card](images/scans/Card.jpg)
 
-TBD image:Cover.jpg
+![Cover](images/scans/Cover.jpg)
 
 ## Hosting of ASPS Congress
 
@@ -187,14 +187,14 @@ On several occasions the Glasgow Philatelic Society hosted the annual congress o
 
 The first Congress cover produced by Glasgow philatelic Society was in 1966. This showed Glasgow Cathedral
 
-TBD image:Congress-1966.jpg
+![Congress 1966](images/Congress-1966.jpg)
 
 The 1980 Cover showed two Veteran Morris cars that took part in the Veteran Car run from Glasgow to Stirling. The cover highlights the Diamond Jubilee of Glasgow Philatelic Society.
 
-TBD image:Congress-1980.jpg
+![Congress 1980](images/scans/Congress-1980.jpg)
 
 in 1995 the postmark was based on the Coat of Arms Old Gas Lamp in Cathedral Square in Glasgow to celebrate the 75th anniversary of Glasgow Philatelic Society. 
 
-TBD image:ASPS-1995-Postmark.jpg
+![ASPS 1995 Postmark](images/scans/ASPS-1995-Postmatk.jpg)
 
-TBD image:Glasgow-Crest.jpg
+![Glasgow Crest](images/scans/Glasgow-Crest.jpg)

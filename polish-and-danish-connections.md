@@ -2,11 +2,11 @@
 
 During the Second World War, many Polish Servicemen came to Britain, quite a lot to Scotland. A surprising number happened to be stamp collectors.  There was a small Polish stamp club in Glasgow. Plus, the Glasgow PS had a Polish connection. In 1968 Glasgow PS sent a 3 man team to Lodz with displays from 10 members of the Society. They were well received and the cover shown has the special postmark to commemorate the event.
 
-TBD Image:Vist-to-Lodz-in-1968.jpg
+![Visit to Lodz in 1968](images/scans/Visit-to-LODZ-in-1968.jpg)
 
 In 1970 as part of SCOPHILEX a team of philatelists from LODZ came to Glasgow and gave a display. 3 members of LODZ PZF gave displays at SCOPHILEX. They gave a display of the “Old Kingdom of Poland – 1815 – 1870”.  There were also letters and stamps from illegal Polish mail which flourished during the Nazi occupation of Warsaw, when writers, carriers and recipients all faced the death penalty if caught. A special postmark was used on the opening day highlighting the visit by LODZ PZF.  A visit was also made to Paisley PS by the LODZ team.
 
-TBD Image:Polish-Week-Cover.jpg
+![Polish Week Cover](images/scans/Polish-Week-Cover.jpg)
 
 In 1979, in connection with Polish Week a special cover was issued by Glasgow PS to commemorate the 15th Anniversary of Polish Week and the Cultural Links between the two countries. The President and other officers of the PZF were invited to a special dinner, hosted by the Association of Scottish Philatelic Societies (ASPS).
 
@@ -14,11 +14,11 @@ An exhibition of “Polish stamps and Philatelic Material 1960 – 1984”, “P
 
 The major activity undertaken by Glasgow PS in support of these cultural relations was the visit to Lodz in 1985 coinciding with the celebrations for the 40th anniversary of the ending of the Second World War. Margaret Morris was a member of the jury accompanied by Fairlie Campbell as National Commissioner of the Exhibition and Leslie McArthur of the Scottish – Polish Cultural Association. Displays from 15 members of Glasgow PS were taken over. 3 special commemorative covers were issued.
 
-TBD Image:Lodz-Cover-1
+![Lodz Cover 1](images/scans/LODZ-cover-1.jpg)
 
-TBD Image:Lodz-Cover-2
+![Lodz Cover 2](images/scans/LODZ-cover-2.jpg)
 
-TBD Image:Lodz-Cover-3
+![Lodz Cover 3](images/scans/LODZ-cover-3.jpg)
 
 The exhibits entered into the Exhibition held in LODZ from 17 - 20 October 1985 are given as below.
 
@@ -50,5 +50,5 @@ Two of the trophies competed for annually in the Glasgow PS were donated to the 
 ## Danish connections.
 In conjunction with the Glasgow-Danish Festival from 17 – 29 June 1968, Glasgow PS held an exhibition of Danish stamps, The cover shown has a special postmark commemorating the festival. It is believed the exhibition was held in the McLellan Galleries.
 
-TBD Image:Danish-Exhibition.1968
+![Danish Exhibition 1968](images/scans/Danish-Exhibition-1968.jpg)
 
