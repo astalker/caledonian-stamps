@@ -6,14 +6,6 @@
 
 The syllabus for 2026 - 2027 is as shown below. There is a mix of afternoon and evening meetings as in previous years. Guest speakers are in afternoon sessions and evening sessions are largely devoted to members displays, competitions, auction and other society events.
 
-Summer meetings will be in the new venue alongside the Glasgow Stamp Shop on the following dates:
-
-**23rd July 2026** - **Tristan da Cunha Potato Stamps** by Martin and Marilyn Crawford and Alistair Burrows- **A Gold Winning** Exhibit. Martin and Marilyn are special geusts from South Africa.
-
-**13th August 2026** - Don't be afeart of Forgeries, they're fun - powerpoint display 
-
-**10th September 2026** - John Gallacher with a Philatelic Website Talk - powerpoint display
-
 ### 2026 - 2027
 
 Location of both afternoon and evening meetings will in the room as part of the Glasgow Stamp Shop. Afternoon meetings and evening meetings are indicated on the list below.
