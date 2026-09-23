@@ -26,31 +26,6 @@ This provides the Society with a Centralised location in Glasgow and the room ca
 
 Members enjoy talks, displays on different themes, visits from other philatelic societies and invited guests, annual competitions and the ever popular auction 
 
-## ASPS Stamp and Postcard Fair April 2026
-
-The Annual Congress of ASPS was held in the Vine Centre in Dunfermline on 19th and 11th of April 2026 and was hosted by Glasgow Caledonian Philatelic Society. 
- 
-## National Exhibition
-
-The following members of the Glasgow Caledonian Philatelic Society were adjudged as winners of the following aweards:
-
-**Scottish Thematic Rosebowl** - Thematic - George Henshilwood
-
-**Carson Trophy** - Traditional GB - George Henshilwood
-
-**Bridge of Allan Trophy** - Traditional Non GB Post 1900 - George Henshilwood
-**Aerophilatelic Shield** - Aerophilately - George Henshilwood
-
-**Robson Lowe Award** - Literature (Books and Catalogues) - Dr Brian Dow together with John Brown (Borders PS)
-
-**Dr H Hirst Bowl** - Best Presentation - George Henshilwood
-
-**Robert Burns Quaich** - Best Host Society Display - Andrew Black
-
-**Scottish Postcard Trophy** - Postcards - Alexander Kerr
-
-Congratulations to the winners.
- 
 ## Access to meeting room at Glasgow Stamp Shop.
 
 The Glasgow Stamp Shop is now at 142 West Nile Street, slightly further up West Nile Street from its previuos location. Being in the centre of Glasgow there is easy access from the nearby main rialway stations (Queen Street and Central Station) as well as the Glasgow Underground at Buchanan Street. On street parking is available in the evnings but is very limited (but still free after 6pm). It is advised to use the car parks at the Concert Hall Multi Storey Car Park or the Buchanan Galleries Multi Storey Car Park. Frequent busses travel to the centre of Glasgow and the Buchanan Bus Station is nearby.  All the car parks and bus station are a short walk to the Glasgow Stamp Shop.
