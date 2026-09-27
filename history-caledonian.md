@@ -38,7 +38,7 @@ The City has been well recognised by philately. Stamps featuring Glasgow, Glasgo
 
 In the 21st Century, the Caledonian Philatelic Society also continues to flourish. It meets on Thursdays from October till April in Strathclyde University. Members are recognised for their knowledge and expertise throughout the philatelic world and new members are always made most welcome. We take pride in always showing a welcoming face and can guarantee anyone joining us a very fine evening, and never a fine mess.
 
-[back to top](#Caledonian Philatelic Society History)
+[back to top](# Caledonian Philatelic Society History)
 
 ## Hosting ASPS Annual Congress
 
