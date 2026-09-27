@@ -2,6 +2,26 @@
 
 [Back to History](./history) / [Previous Meetings](./previous-meetings-glasgow) / [Past Presidents](./past-presidents-glasgow) / [Competitions](./competitions-glasgow) / [Polish and Danish Connections](./polish-and-danish-connections)
 
+While Britain was still recovering from the effects of World War One and whilst military hospitals were full of wounded soldiers   - the year Partick Thistle won the Scottish Cup. – Glasgow philatelic Society came into being. The first meeting of the Glasgow Philatelic Society was held on Monday 15th march 1920 in the Christian Institute (YMCA) 70 Bothwell Street in Glasgow. Mr H Geitner was in the Chair. A committee was set up comprising H Geitner, N G Crawford, R D Sinclair and A McKie. At the 5th meeting on 20th September 1920 H Geitner was elected as Chairman and meetings were to be held on 2nd Monday of the month. The position of President was formalised at the 30h meeting on 13th of October 1924 when A M Orr was elected. Up until then various persons, as available, took the Chair for the meetings. A list of all the past Presidents (and initial Chairmen0 is given on the Past Presidents page.  
+
+The first meetings were held in the YMCA, 70 Bothwell Street, Glasgow (referred to in minutes as Christian Institute) with a second Exchange meeting at Cranston’s Smoke Room, 17 Regent Street. 
+Over the years a variety of different premises were used. The final meetings were held in Partick Burgh Halls prior to the merger with the Caledonian Philatelic Society.
+
+Over the years the Society has played an important role in the promotion of philately in Scotland. For the most part meetings were held weekly and in the early days alternate meetings were “Exchange” meetings. The 1000th meeting was held on 25th March 1975 in which 16 Past Presidents gave displays (Cover) and the 1500th meeting on 11th March 1995. A Cover was produced for the 55th Anniversary in 1975.
+
+The only breaks in the schedules were during World War II and during the COVID 19 pandemic of 2020 and 2021. 
+
+The Society was active in promoting philately and organised and took part in numerous exhibitions including the fascinating “Postal History of Glasgow” display in the Kelvingrove Museum and Art Galleries as part of the GLASGOW 800 celebrations in 1975. (Link). Also of note were the “Stamp of Royalty” exhibition in 1977 for Queen Elizabeth II Silver Jubilee at the People’s Palace, Pride of the Clyde” and displays at the Glasgow Garden Festival. Souvenir covers of some of them are shown below (Links). A more extensive collection of covers, brochures, artwork and pamphlets relating to these various exhibitions is held in the society’s archives. 
+
+Strong links were forged with the Polish Philatelic Federation (PZF) and reciprocal visits took place between the Polish city of Lodz and Glasgow (link). An exhibition of “Polish stamps and Philatelic Material 1960 – 1984”, including exhibits from P.Z.F. Warsaw was held in the McLellan Galleries grom 8th October – 12th October 1984. A reciprocal visit was made to Lodz in 1968 and three members of the Society attended, with 15 displays from Glasgow PS members.
+
+On several occasions the Glasgow Philatelic Society hosted the annual congress of the Association of Scottish Philatelic Societies (ASPS) and souvenir covers are shown below.
+1933, 1939, 1952, 1966, 1970 in association with Scophilex,1980 and  1995, 
+
+A Centenary Dinner with presentations from Philatelic Societies around Scotland was held on 16th April 2024 in the Glasgow Grosvenor Hotel. The dinner was delayed due to restrictions resulting from the COVID 19 pandemic.
+
+In 2025, due largely to falling membership, Glasgow Philatelic Society decided to merge with the Caledonian Philatelic Society, which was also experiencing the same problem. The new Society is named The Glasgow Caledonian Philatelic Society.  
+
 1. [The Glasgow Philatelic Society Crest](the-glasgow-philatelic-society-crest)
 1. [Anniversary meetings](#anniversary-meetings)
 1. [Annual Exhibitions](#annual-exhibitions)
