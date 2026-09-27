@@ -109,3 +109,6 @@ Date    | President
 2022-23	| Mrs Elizabeth Nairn
 2023-24	| Dr Stewart Gardiner FRPSL
 2024-25	| Sandy Kerr
+
+It was customary for several years to present each incoming President with the Flower Vase shown below.
+
