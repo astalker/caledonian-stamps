@@ -12,8 +12,11 @@
 1. [COP 26](#cop-26)
 
 One of the UK’s longest-running philatelic societies, Caledonian Philatelic Society was founded on 14 February 1906 when a group of stamp collectors met on the premises of Douglas, Cook & Co Stamp Dealers on Sauchiehall Street, Glasgow, and made the decision to form a philatelic society. The group was initially known as the Junior Philatelic Society of Scotland, changing to its current name in 1930. Its first president was Sir John Ure Primrose, Glasgow’s Lord Provost, and he continued as president until his death in 1923. 
+
 Meetings were held fortnightly with an exchange section also being formed. A well-furnished and comprehensive library was commenced in 1908. Douglas, Cook & Co. went out of business in 1908 and meetings were transferred to the Alexandra Hotel in Bath Street. Over the years the society has met at several Glasgow venues and, since the end of World War II, has met weekly from early October to the middle of December and from early January to mid-March. In the final years of the Society meetings were held in Strathclyde University in the Graham Hills building. The two thousand-five hundredth meeting of the Society was held on 13 October 2016. Gradually membership has declined and in 2025 a merger with the Glasgow Philatelic Society took place to form the Glasgow Caledonian Philatelic Society. 
+
 A comprehensive history of the Caledonian Philatelic Society was compiled by Dr Stewart Gardiner for the Centenary in 2006 (ISBN 0-9550656-0-7). It is not the intention here to duplicate material included in the book but merely to add and illustrate subsequent material.
+
 On its 75th anniversary, the Society hosted the annual Congress of Scottish Philatelic Societies at Stirling University. One souvenir produced to mark the anniversary was a miniature sheet depicting a booklet pane with a St Andrews cross which was first printed in 1906, the year that the Society was formed. In its centenary year, the Society hosted the ASPS Congress at Perth; organised the Philatelic Congress of GB in Renfrew in July and gave an invited display to the Royal Philatelic Society London in November 2006. Two special evenings were included in the Syllabus when Past Presidents gave short displays to the members. 
 
 ## Centennial
