@@ -19,14 +19,14 @@ In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W.
 
 ![Crest of Glasgow PS](images/scans/Crest-of-Glasgow-PS.jpg)
 
+Originals sketch of Crest for Glasgow Philatelic Society
+
 ![Glasgow City Crest](images/scans/Glasgow-City-Crest.jpg)
 ## Anniversary Meetings
 
 The **Golden Jubilee** was celebrated in 1970. A special postmark was produced and used on a commemorative cover celebrating the occasion and on a SCOPHILEX Exhibition Cover. Both covers shown also have a cachet commemorating the bicentennial of the "discovery" of Australia by Captain Cook.
 
 ![Golden Jubilee](images/scans/Gloden-Jubilee.jpg)
-
-Original sketch of Crest for Glasgow philatelic Society
 
 ![Golden Jubilee 1](images/scans/Gloden-Jubilee-1.jpg)
 
