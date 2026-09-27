@@ -28,7 +28,10 @@ In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W.
 **Glasgow City Crest as depicted on Brochure produced for 11th Philatelic Congress of Great Britain**
 
 ![Glasgow City Crest](images/scans/Glasgow-City-Crest.jpg)
-## Anniversary Meetings
+
+<div align="justify">
+   
+   ## Anniversary Meetings
 
 The **Golden Jubilee** was celebrated in 1970. A special postmark was produced and used on a commemorative cover celebrating the occasion and on a SCOPHILEX Exhibition Cover. Both covers shown also have a cachet commemorating the bicentennial of the "discovery" of Australia by Captain Cook.
 
