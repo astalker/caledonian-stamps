@@ -78,7 +78,7 @@ Date    | President
 1991-92	| C Y Reid
 1992-93	| J Morgan
 1993-94	| N Coutts
-1994-95	| George McKemzie
+1994-95	| George McKenzie
 1995-96	| A J Southwood
 1996-97	| Bruce Allan	
 1997-98	| D Cornwell
