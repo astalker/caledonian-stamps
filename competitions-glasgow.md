@@ -1,5 +1,7 @@
 # Glasgow Philatelic Society Competitions
 
+Winners of each of the competitions are listed below. Unfortunately the LODZ Plate for Thematic Entries went missing some years ago and it has not been possible to ascertain the winners.The Lodz plate can be seen on the cover illustrated for the 3rd Annual Exhibition.
+
 [Back to Glasgow Philatelic History](./history-glasgow)
 
 ## Jubilee Shield
@@ -117,7 +119,7 @@ Year | Winner
 
 ## The Polish Thematic Trophy
 
-Presented to the Glasgow philatelic Society by Margaret Morris in 1998
+Presented to the Glasgow Philatelic Society by Margaret Morris in 1998
 
 Awarded for Thematic Entries
 
@@ -193,3 +195,56 @@ Year | Winner
 1977 | M P Colpi
 1978 | No Award
 1979 | M P Colpi
+
+## The Glasgow Salver 
+
+Presented by Mr and Mrs Edwin Morris in April 1974
+
+Awarded for the best two round display in the previous year with engraved signatures of the winners. It has not been possible to find the dates for all of the winners. Winners are listed up to 2004 as well as other later signatories where the year of award is not known.
+
+Year | Winner
+---- |-----
+1974  | Jean Alexander
+1975  | D Murray
+1976  | R J Archer
+1982  | Edwin Morris
+1987  | Edwin Morris
+1988  | G MacKenzie
+1990  | K Adams
+1991  | Edwin Morris
+1992  | G MacKenzie
+1993  | J Murray
+1994  | J Moffat
+1995  | K Adams
+1996  | Kenny Morrison
+1997  | K Adams
+1998  | J Morgan
+1999  | J Crawford
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
