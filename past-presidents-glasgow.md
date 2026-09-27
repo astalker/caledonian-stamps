@@ -112,3 +112,5 @@ Date    | President
 
 It was customary for several years to present each incoming President with the Flower Vase shown below.
 
+![Flower Vase](images/scans/55th-Anniversary-Cover.jpg)
+
