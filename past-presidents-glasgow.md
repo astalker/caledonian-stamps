@@ -61,7 +61,7 @@ Date    | President
 1974-75	|	J Murray
 1975-76	| K Morrison
 1976-77	|	Boyd Brown
-1977-78	|	Margaret Morris
+1977-78	|	Mrs Margaret Morris
 1978-79	| David Murray
 1979-80	| F Wharton
 1980-81	| T G R Erskine
