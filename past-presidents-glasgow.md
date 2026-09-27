@@ -90,5 +90,22 @@ Date    | President
 2003-04	| Richard Tough
 2004-05	|	Keith Herbertson
 2005-06	| James E MacAlpine
-2003-07	| Frank Barron
+2003-07	| Frank Baran
 2007-08	| James Evers
+2008-09	| W Russell
+2009-10	| J Arthur
+2010-11	| Alex MacIntosh
+2011-12	| Mrs Elsie Miller
+2012-13	| Jim Moffat
+2013-14	| Jack Murray
+2014-15	| W Russell
+2015-16	| Prof Ray Welland
+2016-17	| J Arthur
+2017-18	| Alex MacIntosh
+2018-19	| Mrs Elsie Miller
+2019-20	| George Henshilwood
+2020-21	| No meetings due to restrictions due to COVID 19 Pandemic
+2021-22	| No meetings due to restrictions due to COVID 19 Pandemic
+2022-23	| Mrs Elizabeth Nairn
+2023-24	| Dr Stewart Gardiner FRPSL
+2024-25	| Sandy Kerr
