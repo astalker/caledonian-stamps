@@ -19,7 +19,7 @@ In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W.
 
 ![Crest of Glasgow PS](images/scans/Crest-of-Glasgow-PS.jpg)
 
-Original sketch of Crest for Glasgow Philatelic Society
+<p style="text-align: center;line-height:3em;margin:20px 80px">Original sketch of Crest for Glasgow Philatelic Society
 
 ![Glasgow City Crest](images/scans/Glasgow-City-Crest.jpg)
 ## Anniversary Meetings
