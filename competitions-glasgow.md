@@ -221,6 +221,6 @@ Year | Winner
 1998  | J Morgan
 1999  | J Crawford
 
-Other signatories on the Salver 
+Other signatories on the Salver for whom the date cannot be traced.
 
-James McAlpine, James MacKay, Robert J Owen, Boyd S Brown, Alan Lacey, I B Hamilton, Charles Reid, Garry Buchanan, Kenny Morrison, S F Gilmour, George MacKenzie, Tom Cowall, Frank Wharton, Eugene Wood, Alex McIntosh, Richard Tough, John A Morgan, Margaret Graham, Howard Gordon, Jim Crawford, Ray Welland, Elizabeth Nairn, 
+James McAlpine, James MacKay, Robert J Owen, Boyd S Brown, Alan Lacey, I B Hamilton, Charles Reid, Garry Buchanan, Kenny Morrison, S F Gilmour, George MacKenzie, Tom Cowall, Frank Wharton, Eugene Wood, Alex McIntosh, Richard Tough, John A Morgan, Margaret Graham, Howard Gordon, Jim Crawford, Ray Welland, Elizabeth Nairn.
