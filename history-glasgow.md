@@ -32,9 +32,9 @@ In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W.
 
 The **Golden Jubilee** was celebrated in 1970. A special postmark was produced and used on a commemorative cover celebrating the occasion and on a SCOPHILEX Exhibition Cover. Both covers shown also have a cachet commemorating the bicentennial of the "discovery" of Australia by Captain Cook.
 
-![Golden Jubilee](images/scans/Gloden-Jubilee.jpg)
+![Golden Jubilee](images/scans/Golden-Jubilee.jpg)
 
-![Golden Jubilee 1](images/scans/Gloden-Jubilee-1.jpg)
+![Golden Jubilee 1](images/scans/Golden-Jubilee-1.jpg)
 
 The **55th Anniversary** was celebrated on 15th March 1975 and a commemorative cover was produced.
 
