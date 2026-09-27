@@ -26,6 +26,8 @@ The **Golden Jubilee** was celebrated in 1970. A special postmark was produced a
 
 ![Golden Jubilee](images/scans/Gloden-Jubilee.jpg)
 
+Original sketch of Crest for Glasgow philatelic Society
+
 ![Golden Jubilee 1](images/scans/Gloden-Jubilee-1.jpg)
 
 The **55th Anniversary** was celebrated on 15th March 1975 and a commemorative cover was produced.
