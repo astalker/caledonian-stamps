@@ -10,16 +10,16 @@ Date    | President
 1921-22 | F H Geitner
 1922-23 | R Duncan
 1923-24	| R Duncan
-1924-25 |	A M Orr as President (First designation of President)
+1924-25 | A M Orr as President (First designation of President)
 1925-26	| A M Orr
-1926-27 |	A M Orr
+1926-27 | A M Orr
 1927-28	| A M Orr but A Bruce Auckland elected as President when A M Orr was transferred to Italy in October 1927
 1928-29	| A Bruce Auckland
 1929-30	| H W Buchan
 1930-31 | A Keith MacDonald
 1931-32	| A Keith MacDonald
 1932-33 | J W Walker
-1933-34 |	W G Paris
+1933-34 | W G Paris
 1934-35	| J R Raeburn
 1935-36	| J Young
 1936-37	| Mrs C D Stuart
@@ -29,13 +29,13 @@ Date    | President
 1940-41	| E Lauder
 1941-42	| J Motion
 1942-45 | No Meetings from April 1942 to August 1945 due to War
-1945-46	|	Rev Hassal Hanmer MA BD
+1945-46	| Rev Hassal Hanmer MA BD
 1946-47 | Rev Hassal Hanmer
 1947-48	| Rev Hassal Hanmer
 1948-49	| W L Morton
 1949-50	| Rev G Milne Ewan FRPSL
 1950-51	| A McConnell
-1951-52	|	A McConnell
+1951-52	| A McConnell
 1952-53	| Wm P Dick
 1953-54	| C A King
 1954-55	| T R Forrest
@@ -46,22 +46,22 @@ Date    | President
 1959-60	| J D Thomson
 1960-61	| Harry Lightbody
 1961-62	| Edwin Morris
-1962-63	|	Dr Alistair A Clark
-1963-64	|	F Wharton
-1964-65	|	W S Bell
+1962-63	| Dr Alistair A Clark
+1963-64	| F Wharton
+1964-65	| W S Bell
 1965-66	| S R MacKenzie FRPSL
-1966-67	|	S F Gilmour
+1966-67	| S F Gilmour
 1967-68	| J Fairlie Campbell
 1968-69	| Harry Sennett
 1969-70	| T Cowell
-1970-71	|	G McKenzie
-1971-72	|	Gilbert May
+1970-71	| G McKenzie
+1971-72	| Gilbert May
 1972-73	| N Reilly
-1973-74	|	James Crawford
-1974-75	|	J Murray
+1973-74	| James Crawford
+1974-75	| J Murray
 1975-76	| K Morrison
-1976-77	|	Boyd Brown
-1977-78	|	Mrs Margaret Morris
+1976-77	| Boyd Brown
+1977-78	| Mrs Margaret Morris
 1978-79	| David Murray
 1979-80	| F Wharton
 1980-81	| T G R Erskine
@@ -88,7 +88,7 @@ Date    | President
 2001-02	| James Mackay
 2002-03	| Howard Gordon
 2003-04	| Richard Tough
-2004-05	|	Keith Herbertson
+2004-05	| Keith Herbertson
 2005-06	| James E MacAlpine
 2003-07	| Frank Baran
 2007-08	| James Evers

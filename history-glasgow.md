@@ -43,7 +43,7 @@ In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W.
 
 **Glasgow City Crest as depicted on Brochure produced for 11th Philatelic Congress of Great Britain**
 
-![Glasgow City Crest](images/scans/Glasgow-City-Crest.jpg)
+![Glasgow City Crest](images/scans/Glasgow-City-Crest-v2.jpg)
 
 [back to top](#history)
 
@@ -71,7 +71,7 @@ For the **75th anniversary** in 1995, the Society hosted the annual Congress of 
 
 The **1500th meeting** took place on 14th March 1995. A second card with a replica of the Post Office Notice introducing Post Cards was produced to be used at the ASPS Congress in 1995.
 
-![1500th Meeting Signed Cover](images/scans/1500th-Meeting-signed-cover.jpg)
+![1500th Meeting Signed Cover](images/scans/1500th-Meeting-signed-cover-v2.jpg)
 
 ![1500th Meeting Card](images/scans/1500th-Meeting-Card.jpg)
 
@@ -190,7 +190,7 @@ On 6th and 7th June 1988 an exhibition was held in the Museum of Transport when 
 
 In conjunction with the **Garden Festival** in 1988, Glasgow Philatelic Society mounted an exhibition in the Museum of Transport as part of the Planet Earth exhibition. The cover is signed by George Chesworth the Director of the Garden Festival. 
 
-![Garden Festival Cover](images/scans/Garden-Festival-Cover.jpg)
+![Garden Festival Cover](images/scans/Garden-Festival-Cover-v2.jpg)
 
 **Stampway to the World**
 
