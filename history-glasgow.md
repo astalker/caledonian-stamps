@@ -132,9 +132,11 @@ There were several cancellations produced including one with a cachet to commemo
 
 ![Postmarks of Glasgow](images/scans/Postmarks-of-Glasgow.jpg)
 
-No 1 First Glasgow Woodcut No 2 Glasgow Crown Ship Letter No 3 Receiving house – Glasgow Exchange
-No 4 Glasgow “Roller” No 5 Duplex Cancellation  No 6 Scots Local Cancellation
-No 7 Double Ring Numbered Cancel No 8 Glasgow Newspaper Branch No 9 Double Ring Numbered Cancellation with Solid Arcs
+1 First Glasgow Woodcut  2 Glasgow Crown Ship Letter 3 Receiving house – Glasgow Exchange
+
+4 Glasgow “Roller” 5 Duplex Cancellation  6 Scots Local Cancellation
+
+7 Double Ring Numbered Cancel 8 Glasgow Newspaper Branch 9 Double Ring Numbered Cancellation with Solid Arcs
 
 Two sheets of Commemorative labels were on sale at the exhibition. One showing significant aspects of each century from the 12th century to the 29th century and the second sheet showing the Royal Mail Coach from 1940. The Mail Coach led the Lord Provost’s procession from Kelvin Way to Glasgow Green via George Square. The design of the cover is based on the 1890 Jubilee of Penny Postage Envelope. 
 
