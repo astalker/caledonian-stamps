@@ -133,6 +133,7 @@ There were several cancellations produced including one with a cachet to commemo
 ![Postmarks of Glasgow](images/scans/Postmarks-of-Glasgow.jpg)
 
 ----------| ----------
+
 1  First Glasgow Woodcut |  2 Glasgow Crown Ship Letter 
 3  Receiving house – Glasgow Exchange |  4. Glasgow “Roller”
 5. Duplex Cancellation  | 6. Scots Local Cancellation
