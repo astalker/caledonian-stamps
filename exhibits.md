@@ -7,3 +7,9 @@ It is intended on this page to include displays and exhibits by members and visi
 [![Colombia Exhibit](images/exhibits/colombia/colombia.jpg)](./exhibits-colombia)
 
 [View the Colombia Exhibit](./exhibits-colombia)
+
+## Forgery Display
+
+[![Forgery Display](images/exhibits/forgery-display.jpg)](./exhibits-forgery-display)
+
+[View the Forgery Display](./exhibits-forgery-display)
