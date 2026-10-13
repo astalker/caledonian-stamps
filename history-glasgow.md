@@ -100,9 +100,9 @@ Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1
 3. **Air Mail** - in the air mail section there were many items carried in both directions across the Atlantic. Included was an interesting exhibit featuring the development of aviation in Scotland.
 4. **Aspects of US Philately**. - included were some areas of specialisation. An exhibit of independant mail carriers including the famous name Wells Fargo.and studies of individual stamps, postal stationery and modern printing methods.
 
-![Clyde 76 Cover](images/scans/Clyde-76-Cover.jpg)
+![Clyde-'76 Cover](images/scans/Clyde-76-Cover.jpg)
 
-![Clyde 76](images/scans/CLYDE-77.jpg)
+![Clyde-'76](images/scans/CLYDE-77.jpg)
 
 As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Queen Elizabeth II and Glasgow Philatelic Society mounted an exhibition in the Palace of Art entitled “The Stamp of Royalty”. A souvenir cover is shown with a cachet for the Royal Visit to Glasgow. Also shown os the inner of a special card with the four G.B. Silver Jubilee stamps with the exhibition postmark.
 
