@@ -102,11 +102,11 @@ Radio Clyde sponsored the CLYDE ’76 and CLYDE ’77 festivals in Glasgow. In 1
 
 ![Clyde '76 Cover](images/scans/Clyde-'76-Cover.jpg)
 
-![Clyde '76](images/scans/CLYDE-'76.jpg)
+![Clyde '76](images/scans/Clyde-'76.jpg)
 
 As part of Clyde ‘77 there were also celebrations for the Silver Jubilee of Queen Elizabeth II and Glasgow Philatelic Society mounted an exhibition in the Palace of Art entitled “The Stamp of Royalty”. A souvenir cover is shown with a cachet for the Royal Visit to Glasgow. Also shown os the inner of a special card with the four G.B. Silver Jubilee stamps with the exhibition postmark.
 
-![Clyde 77 Cover with Royal Visit Cachet](images/scans/CLYDE-77-cover-with-Royal-V.jpg)
+![Clyde 77 Cover with Royal Visit Cachet](images/scans/Clyde-77-cover-with-Royal-Visit-cachet.jpg)
 
 ![Silver Jubilee Card](images/scans/Silver-Jubilee-card.jpg)
 
