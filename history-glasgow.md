@@ -33,11 +33,11 @@ In 2025, due largely to falling membership, Glasgow Philatelic Society decided t
 1. [Pride of the Clyde](#pride-of-the-clyde)
 1. [Hosting of ASPS Congress](#hosting-of-asps-congress)
    
-<div style="## The Glasgow Philatelic Society Crest,">
+## The Glasgow Philatelic Society Crest
 
 In 1924 it was decided to adopt a Society Crest.  A competition, won by Mr J. W. Walker, produced a design that remained in use until 2025. It has been largely adopted, with some minor modifications by Glasgow Caledonian Philatelic Society. It is heavily based on the Crest for the City of Glasgow. The two scans show the Glasgow City crest as used to promote the 11th Philatelic Congress in 1924 and a coloured in depiction of the Crest as used by Glasgow Philatelic Society. The similarity is obvious. 
 
-**Original sketch of Crest for Glasgow Philatelic Society**
+<div style=**Original sketch of Crest for Glasgow Philatelic Society**-align:center,">
    
 ![Crest of Glasgow PS](images/scans/Crest-of-Glasgow-PS.jpg)
 
