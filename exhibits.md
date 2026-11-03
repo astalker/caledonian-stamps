@@ -8,6 +8,12 @@ It is intended on this page to include displays and exhibits by members and visi
 
 [View the Colombia Exhibit](./exhibits-colombia)
 
+## Department of Antioquia
+
+[![Department of Antioquia Exhibit](images/exhibits/department-of-antioquia.jpg)](./exhibits-department-of-antioquia)
+
+[View the Department of Antioquia Exhibit](./exhibits-department-of-antioquia)
+
 ## Forgery Display
 
 [![Forgery Display](images/exhibits/forgery-display.jpg)](./exhibits-forgery-display)
