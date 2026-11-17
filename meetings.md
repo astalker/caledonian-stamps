@@ -33,7 +33,7 @@ Date  | Subject | Displayer | Timing of meetings |
 11 March | Auction  || Evening
 18 March | Explorers | Maureen Matheson | Afternoon
 1 April | AGM || 
-9/10 April | ASPS Stamp and Postcard Fair | Vine Centre, Dunfermline KY11 4JU
+16/17 April | ASPS Stamp and Postcard Fair | Vine Centre, Dunfermline KY11 4JU
 
 
  
