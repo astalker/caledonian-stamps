@@ -2,9 +2,9 @@
 
 [Back to Meetings](./meetings)
 
-Meetings are held in Suite E/F on the first floor at 142 West Nlile Street in Glasgow. The room is currently being set up to provide permanent wall mounted display boards. 
+Meetings are held in Suite E/F on the first floor at 142 West Nile Street in Glasgow. There are 5 wall mounted boards each set for 16 standard sheets. Additional tables can be provided if necessary. 
 
-It is intended that there will be a computer display facility as well as a sound system so that speakers can be heard. The room is better laid out compared to previous venues so it will be better for displayers and audiences. The acoustics are better as well.
+Computer displays can also be given.The room is better laid out compared to previous venues so it will be better for displayers and audiences. The acoustics are better as well.
 
 ### Meeting timetable for Evening  and Afternoon/Joint Meetings
 
